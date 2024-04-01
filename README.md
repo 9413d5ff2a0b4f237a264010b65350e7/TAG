@@ -15,7 +15,12 @@ TAG has ended the lives of thousands of innocent individuals and as the bad acto
 * The California Line (Everyone)
 
 ## [POW](POW)
-Today the way the CIA and government are now playing TAG has changed starting with the massacre of Mount Calvary Baptist Church in Lexington, KY on a Sunday morning in April 2023. The massacre demonstrated their willingness to make 911 of no use and kill people who were peacefully assembled. Additional places of worship have been attacked and massacred at the height of their respective primary weekly worship service including:
+Today the way the CIA and government are now playing TAG has changed starting with the massacre of Mount Calvary Baptist Church in Lexington, KY on a Sunday morning in April 2023. The massacre demonstrated their willingness to make 911 of no use and kill people who were peacefully assembled. 
+
+Additional places of worship have been massacred in an attempt to hide the massacre of Mount Calvary.
+
+The central Kentucky congregations that have been attacked and massacred include:
+* Mount Calvary Baptist Church 
 * Mount Zion Baptist
 * Lexington Bethel Baptist Church
 * House of God
