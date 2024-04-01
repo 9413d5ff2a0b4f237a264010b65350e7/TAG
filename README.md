@@ -11,7 +11,8 @@ TAG has ended the lives of thousands of innocent individuals and as the bad acto
 * The Celebrity (Madonna)
 * The PARC (Patricia Ann Rogers Crawley)
 * The Dancefloor (The Paulo-Jackinsky)
-  
+
+## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the massacre of Mount Calvary Baptist Church in Lexington, KY on a Sunday morning in April 2023. The massacre demonstrated their willingness to make 911 of no use and kill people who were peacefully assembled. Additional places of worship have been attacked and massacred at the height of their respective primary weekly worship service including:
 * Mount Zion Baptist
 * Lexington Bethel Baptist Church
