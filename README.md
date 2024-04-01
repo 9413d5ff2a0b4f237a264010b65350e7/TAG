@@ -17,7 +17,7 @@ TAG has ended the lives of thousands of innocent individuals and as the bad acto
 ## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the massacre of Mount Calvary Baptist Church in Lexington, KY on a Sunday morning in April 2023. The massacre demonstrated their willingness to make 911 of no use and kill people who were peacefully assembled. 
 
-Additional places of worship have been massacred in an attempt to hide the massacre of Mount Calvary.
+Additional places of worship have been massacred in an attempt to hide the massacre of Mount Calvary and the CIA has used the properties of these congregations to add to TAG's death toll by announcing funerals and holding various religious services and non-religious events (including super bowl parties and hair shows).
 
 The central Kentucky congregations that have been attacked and massacred include:
 * Mount Calvary Baptist Church 
