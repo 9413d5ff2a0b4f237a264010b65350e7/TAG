@@ -5,6 +5,7 @@ This repository holds both code and non-code assets related to the genocide star
 
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to not be it, you are halfway there GI Joe, now clone it and share it widely."
 
+## [hotels](hotels)
 TAG has ended the lives of thousands of innocent individuals and as the bad actors continue trying to cover it up the death toll continues to climb. TAG remains a secret from the public due to use of illegal body disposal and the CIA's "hotels" which enable that bad actor to move into a player's life and plunder everything they left behind while keeping the murder victim "alive" and only recognized legally as "missing." Some notable hotels include:
 * The Luxury Line (Galardo & Grootegoed Families)
 * The Executive Line (Nanea Reeves)
