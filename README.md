@@ -1,8 +1,9 @@
 # TAG
 The TAG repository the US government cannot have online.
 
-This repository holds both code and non-code assets related to The AIDS cure Genocide started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI. 
+This repository holds both code and non-code assets related to The AIDS cure Genocide started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
 
+You can also view the contents of this repository in this [wiki](wiki).
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to not be it, you are halfway there GI Joe, now clone it and share it widely."
 
 ## [POW](POW)
