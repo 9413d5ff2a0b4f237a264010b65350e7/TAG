@@ -9,4 +9,6 @@ Madonna was killed in February 2023.
 
 ![Screenshot_20240403-105010](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/165702254/dff171a4-e34a-4dab-a07c-1374d5e528df)
 
-After her murder her hotel was established and the impersonator pictured above was hired to conceal it.
+After her murder her [hotel](/TAG/hotels) was established and the impersonator pictured above was hired to conceal it.
+
+Madonna is just one of many musicians and artists killed in [TAG](/TAG).
