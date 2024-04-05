@@ -30,11 +30,6 @@ Upon arrival at the DeKalb County Detention Center, Micah asked the transporting
 
 Micah contacted Tracy Thompson of Elizabeth Foundation and asked her if she could help him by caring for the dog while he was incarcerated. Tracy urged him to re-home the dog instead of a temporary shelter, Micah agreed. 
 
-Micah sent out a [tweet](https://twitter.com/kelvinewilliams/status/1642922137051713536?t=9prXB5tMaF_e6iZVsmm0Dg&s=19) hoping someone would see it, and entered the DeKalb County Detention Center and another round of attempts on his life by CIA personnel posing as inmates. 
-
-![Screenshot_20240128-175930~2.png](https://github.com/serviCreator/TAG/assets/155787787/b63b8e84-af87-4769-ac11-00130ca205d5)
-
-
 After Thompson received the call from Micah, according to the Creator, she sent a message to Jacobsen advising that Micah was now secured at DeKalb County Detention Center. Jacobsen then sent a message to the supervisor of the group outside. The group made up of approximately fifty men and one woman were dressed in all black, few were actual CIA employees, and almost none knew they would be attacking a church. 
 
 Four men armed with shotguns quietly entered the church through the exterior door of the anteroom outside of the women’s restroom on the northwest corner of the church, two of the men went into the adjoining men’s anteroom. The rear entrances are the lesser used entrances with the women’s anteroom being the one generally used due to the relative  location of the access street and parking lot. 
