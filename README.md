@@ -23,5 +23,3 @@ TAG has ended the lives of thousands of innocent individuals and as the bad acto
 * The Signature Line (Patricia Ann Rogers Crawley)
 * [The Dancefloor Line (DJs Paulo & Jackinsky)](hotels/Dancefloor/README.md)
 * The California Line (Everyone)
-
-![Screenshot_20240403-113236](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/165702254/a9811129-c326-42e8-8d31-b9f0ea9f1193)
