@@ -14,4 +14,4 @@ After her murder her [hotel](/hotels) was established and the impersonator pictu
 Madonna is just one of many musicians and artists killed in [TAG](/). 
 
 Listen also:
-* [The Game](https://on.soundcloud.com/T2kbC) - "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.
+* [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.
