@@ -156,7 +156,7 @@ The ring was given to Rev. Dr. Felix G. Williams, III upon his graduation from s
 ### 40th Pastoral Anniversary 
 The second confirmation came when they held a photo shoot at the church that prominently featured models who looked like the slain family members of Micah. 
 
-Micah wrote about the event which was not held on a Sunday. [Read more about the pastoral anniversary (caution: language)](MCMBCI/pastoral_anniversary.md)
+Micah wrote about the event which was not held on a Sunday. [Read more about the pastoral anniversary (caution: language)](/MCMBCI/pastoral_anniversary.md)
 
 > [!WARNING]
 > On April 2nd, 2023 Mount Calvary Baptist Church was closed until further notice. No religious or other services will be held or performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies.
