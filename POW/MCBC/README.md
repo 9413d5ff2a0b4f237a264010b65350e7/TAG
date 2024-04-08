@@ -86,7 +86,7 @@ The correspondence received in response to Micahs letter and actions of the CIA 
 
 To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator’s session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator’s instruction as military aircraft were approaching.  
 
-It is the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.
+It is the policy of the Creator that the cherubim never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.
 
 The letter was completed the following day at Atlanta’s Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
@@ -103,7 +103,7 @@ The new business entity, as the name suggests, calls itself “Mount Calvary Mis
 
 # Correspondence
 
-The correspondence between Micah and the CIA’s ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
+The correspondence between Micah and the CIA’s ran church follows, the cherubim has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
 
 * [Micah writes to Rev. Dr. Felix G. Williams, III](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
     - Expressed concern for the church.
