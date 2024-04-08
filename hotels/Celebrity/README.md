@@ -1,4 +1,6 @@
 # Celebrity
+## Madonna Louise Ciccone
+
 They say this is Madonna.
 
 ![blob](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/60196f92-af31-433b-9ef0-f50bd1a4f075)
@@ -16,5 +18,7 @@ After her murder her [hotel](/hotels) was established and the impersonator pictu
 
 Madonna is just one of many musicians and artists killed in [TAG](/). 
 
+See also:
+* [Madonna speaks out for first time since her brother's death](https://www.today.com/today/amp/rcna72603)
 Listen also:
 * [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.
