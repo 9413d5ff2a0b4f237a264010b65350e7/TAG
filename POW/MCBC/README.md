@@ -120,7 +120,7 @@ The correspondence between Micah and the CIA’s ran church follows, the SotC ha
     - [[Read the Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230526_griffin_cease_and_desist.pdf)
 
 * [Micah responds to Attorney Yavon L. Griffin.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
-    - Micah says, “‘Have a blessed day’ does not mean what you think it does if you think I’m being nice… It’s how some southern, God-fearing women say ‘Fuck You’ and that’s the only way I wanted it received.” 
+    - Micah says, “‘Have a blessed day’ does not mean what you think it does if you think I’m being nice… It’s how some southern, God-fearing women say ‘F- You’ and that’s the only way I wanted it received.” 
     - [[Read the Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
 
 * [Micah was served with an Order of Protection.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
