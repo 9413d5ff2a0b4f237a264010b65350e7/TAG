@@ -84,10 +84,12 @@ Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (
 > Vandaveer's music has been tampered with on streaming services in the US. At least one album, *"The Wild Mercury,"* has been released under their name but the lyrics did not come from the Creator as they did on the true *"Divide & Conquer"* or *"Dig Down Deep"* albums.
 
 > [!NOTE]
-> The CIA produced *"But Enough on That For Now"* and bragged about destroying my family's cemetery, stealing Sandy Hook, and building a new development.
+> The CIA produced *"But Enough on That For Now"* [YouTube Music](https://music.youtube.com/watch?v=heLmOj9h6C8&si=_-iZpAfBrP4y9TJ8) and bragged about destroying my family's cemetery, stealing Sandy Hook, and building a new development.
 
 ## Serving Ovahness
-[The Game](https://on.soundcloud.com/T2kbC) is the cunty mix I've been listening too lately. It has the "You're just busted" acapella about Madonna.
+[The Game](https://on.soundcloud.com/T2kbC) is the sassy mix I've been listening too lately. Things to hear:
+* All references in the acapellas to "the street" are referring to Prince's "Alphabet Street" which is my family's cemetery.
+* "Cheap Madonna wig with the ponytails" / "You're just busted" acapella about Madonna's murder and its cover-up.
 
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
