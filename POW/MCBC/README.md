@@ -10,7 +10,7 @@ Mount Calvary Baptist Church is a small church on Todds Road in remote Lexington
 
 Mount Calvary Baptist Church is the lifelong church of one of the Creator's servants,  Micah. Micah was born, Kelvin Eugene Williams. The pastor of Mount Calvary Baptist Church is Micah's cousin, the Rev. Dr. Felix G. Williams, III. 
 
-The massacre was the first massacre of a church's congregation in the [AIDS cure genocide](https://github.com/serviCreator/TAG).
+The massacre was the first massacre of a church's congregation in [TAG (The AIDS cure Genocide)](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG)
 
 ## Location 
 Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY. The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. The church’s address conveys urban area, however, if Fayette county were any other county, the church would be in a rural suburb called Pricetown (see [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic)).  Lexington is unique in that the city of Lexington spans every square inch of Fayette county.
