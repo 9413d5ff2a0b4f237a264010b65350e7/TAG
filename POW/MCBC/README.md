@@ -80,12 +80,7 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 ## Aftermath 
 Mount Calvary Missionary Baptist Church, Inc. was formed by the CIA, which then began occupying the church's property. The CIA provided funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Dozens of funerals could be announced at the exact same time. The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
 
-# Notice
-All mission23 content has been moved to theServants organization on github. See [theServants](https://github.com/theServants).
-
-Access to this wiki has been compromised by the CIA and US federal government. Please remember to Pray To Verify all content you see on either. 
-***
-When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre and viewed photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  
+When Micah, a lifelong member of the Mount Calvary Baptist Church, learned of the massacre and viewed photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  
 
 The correspondence received in response to Micahs letter and actions of the CIA before and after the initial letter clearly indicate to him that they in fact did conduct the massacre.
 
@@ -99,7 +94,7 @@ The purpose of the first letter was to take control of the church, name a interi
 
 Micah has stated since the first letter was written, that upon receiving a DNA test he would immediately step down as pastor and reinstall Rev. Dr. Felix G. Williams, III, essentially installing himself as pastor was purely temporary.  Now that it is evident the massacre occurred, once he has removed all of CIA and government actors and activities from church grounds, he plans to rescind the letter making it null and void.  While an ordained minister, Micah never wanted to pastor a church, and only installed himself for Constitutional reasons. 
 
-The Creator had confirmed, Micah is the only living member of Mount Calvary Baptist Church. 
+The Creator has confirmed, Micah is the only living member of Mount Calvary Baptist Church. 
 
 The CIA is still operating their Mount Calvary Missionary Baptist Church, Inc. in and on the property owned by Mount Calvary Baptist Church. 
 
@@ -110,30 +105,30 @@ The new business entity, as the name suggests, calls itself “Mount Calvary Mis
 
 The correspondence between Micah and the CIA’s ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
 
-* [Micah writes to Rev. Dr. Felix G. Williams, III](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
+* [Micah writes to Rev. Dr. Felix G. Williams, III](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
     - Expressed concern for the church.
     - Took action as member, objecting to property transfers.
     - Removed pastor, associate pastors and deacons until DNA test.
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
 
-* [“Rev. Dr. Felix G. Williams, III” of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230506_mcmbc_response.pdf)
+* [“Rev. Dr. Felix G. Williams, III” of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_mcmbc_response.pdf)
     - _”Word Soup”_ at the beginning of letter doesn’t sound like anything ever said at the church.
     - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place. (See below)
-    - [[Read Letter (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230506_mcmbc_response.pdf)
+    - [[Read Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_mcmbc_response.pdf)
 
-* [Attorney Yavon L. Griffin sends a Cease & Desist to Micah.](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230526_griffin_cease_and_desist.pdf)
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230526_griffin_cease_and_desist.pdf)
+* [Attorney Yavon L. Griffin sends a Cease & Desist to Micah.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230526_griffin_cease_and_desist.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230526_griffin_cease_and_desist.pdf)
 
-* [Micah responds to Attorney Yavon L. Griffin.](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
+* [Micah responds to Attorney Yavon L. Griffin.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
     - Micah says, “‘Have a blessed day’ does not mean what you think it does if you think I’m being nice… It’s how some southern, God-fearing women say ‘Fuck You’ and that’s the only way I wanted it received.” 
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
 
-* [Micah was served with an Order of Protection.](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
+* [Micah was served with an Order of Protection.](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
     - The victim would be the Rev. Dr. Felix G. Williams, III grandfather, who is long deceased. 
     - Received by Clayton County Sheriff’s Deputy moments after committing a PDF of Cease & Desist letter (converted from HEIC format) to the repository. The original couldn’t be opened my everyone. 
     - From Fayette County Sheriff. Something Micah (from neighboring Jessamine County) never heard of, Lexington only has police.
     - Micah unable to find any court hearing.  The website didn’t look like an true court’s website.
-    - [[Read Order (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
+    - [[Read Order (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
 
 ### Response from Mount Calvary Missionary Baptist, Inc.
 ![mcmbc_letterhead](https://github.com/Mission23/MCBCMassacre/assets/140252803/2eee68e2-0184-463e-be1e-f45a617c3818)
