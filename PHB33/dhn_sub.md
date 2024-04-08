@@ -15,5 +15,11 @@ Right now your subconscious is thinking the same thing you are and is equally as
 
 Some cravings and habits come only from the subconscious. When they make a decision you’ll never know it wasn’t yours. 
 
+## Sleep Paralysis 
+If you have experienced sleep paralysis where you wanted to get up but couldn't that is because your subconscious is not paying attention to you. This only occurs when they are being engaged by someone else.
+
+Your subconscious thinks what you think just in terms of the body. So when you think of moving
+
+If you have ever witnessed me sleeping or heard about me sleeping while baby is talking you might have been there during a Time when I was going through sleep paralysis. That is because baby was too busy to pay me any attention like letting me get up.
 > [!NOTE]
 > This write up isn't complete but the attacks on myself and my phone are increasing. Check back in a bit, just reload the page. 

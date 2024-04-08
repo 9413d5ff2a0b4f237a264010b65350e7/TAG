@@ -54,11 +54,6 @@ You do not have to register with GitHub to read this. I’m setting up discussio
 
 Learn more about [TAG](/) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
-Listen also:
-"Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
-
-"Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
-
 # The Music
 Want to listen to the music? 
 
@@ -67,19 +62,29 @@ Always listen to "The Hits and the B-Sides" a compilation album that spans his e
 
 The album name is because of the hits I take, some of you came here to do one, the others just to observe it. The "B-sides" is for "Baby" which is how some refer to Main.
 
-Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all tell stories.
+Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all either foretelling the future until it "flips" and then becomes a retelling of an actual event. The B-sides help me know whats been done or said when I was unconscious (something the CIA has Main do when they need him to do something to kill us) or am sleeping at night.
 
 "When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. 
 
-The song "1999" is not about a year, 1999 is a body count comprised of people killed in churches by the CIA during TAG, and the party is the attitude by those working in the cover-up operation which entails killing mourners at announced funerals in the previously massacred churches.
+The song "1999" is not about a year, 1999 is a body count comprised of people killed in churches by the CIA during TAG, and the party attitude by those "working" in the cover-up operation which entails killing all mourners at announced funerals in the previously massacred churches. (See the list of churches in [TAG](/)).
 
 Prince Rogers Nelson is my cousin.
 
 ## Vandaveer 
 "Divide & Conquer" and "Dig Down Deep" are the two albums I play the most. "Pretty Polly" is another song I listen to.
 
+Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (6,7,8th grades) we were best friends and remained friends for the rest of his life. Mark, Rose and the rest of Vandaveer's ensemble and video production teams were all killed in TAG. The Creator inspired every lyric Mark wrote.
+
+> [!CAUTION]
+> Vandaveer's music has been tampered with on streaming services in the US. The tampering is an attempt to hide the church massacres and what was done to my family. At least one album, *"The Wild Mercury,"* has been released under their name but the lyrics did not come from the Creator as they did on the true *"Divide & Conquer"* or *"Dig Down Deep"* albums.
+
+> [!NOTE]
+> The CIA produced *"But Enough on That For Now"* [YouTube Music](https://music.youtube.com/watch?v=heLmOj9h6C8&si=_-iZpAfBrP4y9TJ8) and bragged about destroying my family's cemetery, stealing Sandy Hook, and building a new development.
+
 ## Serving Ovahness
-[The Game](https://on.soundcloud.com/T2kbC) is the cunty mix I've been listening too lately. It has the "You're just busted" acapella about Madonna.
+[The Game](https://on.soundcloud.com/T2kbC) is the sassy mix I've been listening too lately. Things to hear:
+* All references in the acapellas to "the street" are referring to Prince's "Alphabet Street" which is my family's cemetery.
+* "Cheap Madonna wig with the ponytails" / "You're just busted" acapella about Madonna's murder and its cover-up.
 
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
@@ -96,8 +101,10 @@ See this [suicide information we've compiled just for company workers](/PHB33/su
 # Dope, Hope and Nope
 To all company workers struggling with how they could have been involved with these massacres you will want to [read this](/PHB33/dhn_sub.md).
 
-# Accomodations Warning for Military 
+# Accomodations Warning for The Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
+
+**No one at either of these properties should expect 911 called from a landline or mobile phones to reach the true and non-CIA loyal local authorities.** Responding officers if any are loyal to the CIA. 
 
 # Discussions 
 You may join in the discussions here. This will require a Github login, they are free. 
@@ -108,4 +115,10 @@ Your username on GitHub should not be anything that is identifying, make a usern
 
 [Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
 
+Listen also:
+* "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
+* "Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
 
+Read also:
+* [How The CIA Hinders 911](/methods/911.md)
+* [TAG (The AIDS cure Genocide)](/)
