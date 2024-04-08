@@ -1,7 +1,7 @@
 # The Dancefloor
 This line of hotels owes its name to DJ Paulo of Los Angeles, California, USA and Alain Jackinsky of Montreal, Quebec, Canada both are currently impersonated.
 
-Alain Jackinsky and DJ Paulo collaborated together many times and it was Paulo's murder that led to tokensky being killed in an attempt to hide Paulo death and impersonator.
+Alain Jackinsky and DJ Paulo collaborated together many times and it was Paulo's murder that led to Jackinsky being killed in an attempt to hide Paulo's death and help his impersonator continue to operate undetected.
 
 Alain Jackinsky
 
