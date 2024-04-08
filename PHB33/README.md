@@ -54,11 +54,6 @@ You do not have to register with GitHub to read this. I’m setting up discussio
 
 Learn more about [TAG](/) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
-Listen also:
-"Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
-
-"Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
-
 # The Music
 Want to listen to the music? 
 
@@ -106,8 +101,10 @@ See this [suicide information we've compiled just for company workers](/PHB33/su
 # Dope, Hope and Nope
 To all company workers struggling with how they could have been involved with these massacres you will want to [read this](/PHB33/dhn_sub.md).
 
-# Accomodations Warning for Military 
+# Accomodations Warning for The Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
+
+**No one at either of these properties should expect 911 called from a landline or mobile phones to reach local authorities.**
 
 # Discussions 
 You may join in the discussions here. This will require a Github login, they are free. 
@@ -118,4 +115,10 @@ Your username on GitHub should not be anything that is identifying, make a usern
 
 [Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
 
+Listen also:
+* "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
+* "Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
 
+Read also:
+* [How The CIA Hinders 911](/methods/911.md)
+* [TAG (The AIDS cure Genocide)](/)
