@@ -1,14 +1,13 @@
 # The 40th Pastoral Anniversary 
 ### A Photoshoot for Mount Calvary Missionary Baptist Church, Inc.
-It was announced in a way that I've never seen any church celebration done before. Normally, they're added to the church announcements which my mother used to read each Sunday morning. 
+
+It was announced in a way that I've never seen any church celebration done before at the true Mount Calvary Baptist Church along Todds Road in Lexington, KY, my lifelong church. Normally, they're added to the church announcements which my mother used to read each Sunday morning. The 40th Pastoral Anniversary at the new Mount Calvary Missionary Baptist Church, Inc. had professional photographers and  graphic artists producing the advertisement and social media gurus circulating them online.
 
 ![FB_IMG_1705566697555.jpg](https://github.com/serviCreator/TAG/assets/155787787/0f9fbcab-1bfa-4c89-8867-1bdb099dd706)
 
-They want you to believe that my whole family gathered at Mount Calvary Baptist Church and we all did our part to celebrate the Rev. Dr. Felix G. Williams, III’s 40th Pastoral Anniversary.
+They want you to believe that quite a few of my family gathered at Mount Calvary Missionary Baptist Church, Inc. and we all did our part to celebrate the Rev. Dr. Felix G. Williams, III’s 40th Pastoral Anniversary.
 
-The event was the biggest, most advertised, event since the massacre at Mount Calvary Baptist Church. Advertisements for the event on social media even showed Mount Calvary hosting a visiting church and guest speaker. The problem is the visiting church and guest speaker were both charades and according to the Creator, and have never prayed.
-
-I do not ever get the specifics of anyone’s prayers, but I can get summary or aggregate information when needed, and now it seems, whenever I need to validate if a church is even religious.
+The event was the biggest, most advertised, event since the massacre at the true Mount Calvary Baptist Church which held worship services for over 100 years at the same curve on Todds Road.  Advertisements for the event on social media even showed Mount Calvary hosting a visiting church and guest speaker. The problem is the visiting church and guest speaker were both charades and according to the Creator, and have never even held a worship service.
 
 The whole anniversary celebration was just every shade of wrong. I was at home at the CIA-kill facility, Legacy at Riverdale, in Riverdale, GA when a man who resembles the younger, much heavier me, stepped to the podium. The man resembled what most in central Kentucky remember when they think of me.
 
@@ -26,7 +25,7 @@ One of the biggest differences in doctrine between the church and company-church
 
 Annie Jacobsen can testify to all but the last bit, she was welcomed and made comfortable. Annie cannot say that my church family welcomed her back or wanted to see her again because she interrupted services and massacred everyone that Sunday.
 
-The company-church she installed that is now illegally occupying our property does not share any of our doctrine. While they believe they should welcome everyone (especially those who knew our church), they believe they must kill everyone isn’t an employees and contractor of the CIA. They are putting these beliefs into practice too.
+The company-church she installed that is now illegally occupying our property does not share any of our doctrine. While they believe they should welcome everyone (especially those who knew our church), they believe they must kill everyone that isn’t an employee or contractor of the CIA. They are putting these beliefs into practice too.
 
 That is not a difference in doctrine, which would mean a new denomination. That’s a whole new religion.
 
