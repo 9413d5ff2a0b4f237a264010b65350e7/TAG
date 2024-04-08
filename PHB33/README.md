@@ -71,7 +71,7 @@ Some of the B-side songs were popchart hits, and some of the hits should have be
 
 "When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. 
 
-The song "1999" is not about a year, 1999 is a body count comprised of people killed in churches by the CIA during TAG, and the party is the attitude by those working in the cover-up operation which entails killing mourners at announced funerals in the previously massacred churches.
+The song "1999" is not about a year, 1999 is a body count comprised of people killed in churches by the CIA during TAG, and the party is the attitude by those working in the cover-up operation which entails killing mourners at announced funerals in the previously massacred churches. (See the list of churches in [TAG](/)).
 
 Prince Rogers Nelson is my cousin.
 
