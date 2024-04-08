@@ -44,7 +44,7 @@ The Creator makes us experience things so we can share that experience with othe
 > [!WARNING]
 > Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone. (See Accomodations Warning below for the military).
 
-The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) 
+The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre](/POW/MCBC) 
 began going back to her hotel room--she knew it would be so bad that most who went would kill themselves (see suicide below).  So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
 
 Even if you don't feel suicidal or didn't work at one of the churches, you should know they are killing of others who merely come in contact with me. They have history of doing such that I've witnessed at Motel 6 Decatur, Legacy at Riverdale, and here at Phoenix House. Everyone residing here now I never seen before I went to Clayton County Detention Center for a month and a half.
@@ -52,7 +52,7 @@ Even if you don't feel suicidal or didn't work at one of the churches, you shoul
 Please take the time to read everything linked here. Knowledge is power. 
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
 
-Learn more about [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
+Learn more about [TAG](/) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
 Listen also:
 "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
@@ -69,7 +69,7 @@ The album name is because of the hits I take, some of you came here to do one, t
 
 Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all tell stories.
 
-"When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. 
+"When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. 
 
 The song "1999" is not about a year, 1999 is a body count comprised of people killed in churches by the CIA during TAG, and the party is the attitude by those working in the cover-up operation which entails killing mourners at announced funerals in the previously massacred churches.
 
@@ -91,10 +91,10 @@ The company (which IS the CIA) knows that the overwhelming majority of those who
 
 We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 9/11? Those just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
-See this [suicide information we've compiled just for company workers](profile/suicide_info.md)
+See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
 
 # Dope, Hope and Nope
-To all company workers struggling with how they could have been involved with these massacres you will want to [read this](profile/dhn_sub.md).
+To all company workers struggling with how they could have been involved with these massacres you will want to [read this](/PHB33/dhn_sub.md).
 
 # Accomodations Warning for Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
