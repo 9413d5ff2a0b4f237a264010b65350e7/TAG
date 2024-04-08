@@ -67,7 +67,7 @@ Always listen to "The Hits and the B-Sides" a compilation album that spans his e
 
 The album name is because of the hits I take, some of you came here to do one, the others just to observe it. The "B-sides" is for "Baby" which is how some refer to Main.
 
-Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all tell stories.
+Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all either foretelling the future until it "flips" and then becomes a retelling of an actual event. The B-sides help me know whats been done or said when I was unconscious (something the CIA has Main do when they need him to do something to kill us) or am sleeping at night.
 
 "When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. 
 
