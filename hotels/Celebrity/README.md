@@ -1,22 +1,18 @@
 # Celebrity
-## Madonna Louise Ciccone
+## Madonna 
 
-They say this is Madonna.
+Madonna Louise Ciccone was murdered by the CIA in early February 2023. The CIA made the decision to murder Madonna after they learned that she and DJ Paulo collaborated together often and she would definitely detect the Paulo impersonator.
+
+After the murder her [hotel](/hotels) was established and the impersonator pictured below was hired to conceal it.
+
+Madonna is just one of many musicians and artists killed in [TAG](/). 
 
 ![blob](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/60196f92-af31-433b-9ef0-f50bd1a4f075)
 *"You got that cheap ass Madonna wig with the ponytails, now 'mamma' that's very played Puerto Rican girls **cannot** have blonde ambition."* (See Listen Also)
 
 ![madonna-today-main-230227-a2e2a7 (1)](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/342c3065-06f2-4978-98ed-dcd9f2daf727)
 
-The CIA made the decision to murder Madonna after they learned that she and DJ Paulo collaborated together and she would definitely detect the Paulo impersonator.
-
-Madonna was killed in February 2023.
-
 ![Screenshot_20240403-105010](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/165702254/dff171a4-e34a-4dab-a07c-1374d5e528df)
-
-After her murder her [hotel](/hotels) was established and the impersonator pictured above was hired to conceal it.
-
-Madonna is just one of many musicians and artists killed in [TAG](/). 
 
 Just a couple weeks later, Madonna's brother was reported dead.  I knew immediately how he died, [the CIA only knows one way to deal with a headache](https://twitter.com/kelvinewilliams/status/1630086160776134658?t=lpHEbDEQ7VNl8SsBoPAgQg&s=19).
 
