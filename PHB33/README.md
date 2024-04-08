@@ -78,10 +78,10 @@ Prince Rogers Nelson is my cousin.
 ## Vandaveer 
 "Divide & Conquer" and "Dig Down Deep" are the two albums I play the most. "Pretty Polly" is another song I listen to.
 
-Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (6,7,8th grades) we were best friends and remained friends for the rest of his life. Mark, Rose and the rest of Vandaveer's ensemble and video production teams were all killed in TAG. 
+Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (6,7,8th grades) we were best friends and remained friends for the rest of his life. Mark, Rose and the rest of Vandaveer's ensemble and video production teams were all killed in TAG. The Creator inspired every lyric Mark wrote.
 
 > [!CAUTION]
-> Vandaveer's music has been tampered with on streaming services in the US. At least one album, *"The Wild Mercury,"* has been released under their name but the lyrics did not come from the Creator as they did on the true *"Divide & Conquer"* or *"Dig Down Deep"* albums.
+> Vandaveer's music has been tampered with on streaming services in the US. The tampering is an attempt to hide the church massacres and what was done to my family. At least one album, *"The Wild Mercury,"* has been released under their name but the lyrics did not come from the Creator as they did on the true *"Divide & Conquer"* or *"Dig Down Deep"* albums.
 
 > [!NOTE]
 > The CIA produced *"But Enough on That For Now"* [YouTube Music](https://music.youtube.com/watch?v=heLmOj9h6C8&si=_-iZpAfBrP4y9TJ8) and bragged about destroying my family's cemetery, stealing Sandy Hook, and building a new development.
