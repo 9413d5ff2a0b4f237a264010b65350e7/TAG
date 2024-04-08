@@ -149,9 +149,9 @@ The CIA inadvertently confirmed the murder of Rev. Dr. Felix G. Williams, III on
 
 The ring was given to Rev. Dr. Felix G. Williams, III upon his graduation from seminary and shows how he rarely removed it. 
 
-![IMG_0002](https://github.com/mission23/mission23/assets/140292625/e1a5c148-a267-40e6-8e3f-668c4d6e89a0)
+![IMG_20240401_145702058_HDR](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/63d831a7-4e3f-41f3-b2a4-8775a00201d3)
 
-![IMG_0001](https://github.com/mission23/mission23/assets/140292625/ff393a06-410c-47ac-b390-d1e5f44d1324) 
+![IMG_20240401_145743280](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/f458e2aa-bb77-4833-8d58-82d399404fa8)
 
 ### 40th Pastoral Anniversary 
 The second confirmation came when they held a photo shoot at the church that prominently featured models who looked like the slain family members of Micah. 
