@@ -18,8 +18,11 @@ Some cravings and habits come only from the subconscious. When they make a decis
 ## Sleep Paralysis 
 If you have experienced sleep paralysis where you wanted to get up but couldn't that is because your subconscious is not paying attention to you. This only occurs when they are being engaged by someone else.
 
-Your subconscious thinks what you think just in terms of the body. So when you think of moving
+Quite simply: Your subconscious should always be thinking exactly what you are. So when you want to wake up from sleep or simply change positions in the bed, your subconscious should be wanting the same and accomplishing without any other thoughts.
 
-If you have ever witnessed me sleeping or heard about me sleeping while baby is talking you might have been there during a Time when I was going through sleep paralysis. That is because baby was too busy to pay me any attention like letting me get up.
+If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"sleep visitors"* from entering your room at night.
+
+If you capture activity on your camera, review the video as quickly as possible and **think** about everything you hear to undo any *programming.*
+
 > [!NOTE]
 > This write up isn't complete but the attacks on myself and my phone are increasing. Check back in a bit, just reload the page. 
