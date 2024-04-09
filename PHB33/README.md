@@ -111,7 +111,7 @@ Your username on GitHub should not be anything that is identifying, make a usern
 
 Listen also:
 * "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
-* "Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
+* "Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." 
 
 Read also:
 * [How The CIA Hinders 911](/methods/911.md)
