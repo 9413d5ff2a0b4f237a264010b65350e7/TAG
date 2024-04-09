@@ -17,9 +17,9 @@ The central Kentucky congregations that have been attacked and massacred include
 
 ## [hotels](hotels)
 TAG has ended the lives of thousands of innocent individuals and as the bad actors continue trying to cover it up the death toll continues to climb. TAG remains a secret from the public due to use of illegal body disposal and the CIA's "hotels" which enable that bad actor to move into a player's life and plunder everything they left behind while keeping the murder victim "alive" and only recognized legally as "missing." Some notable hotels include:
-* The Luxury Line (Galardo & Grootegoed Families)
-* The Executive Line (Nanea Reeves)
+* [The Luxury Line (Galardo & Grootegoed Families)](hotels/Luxury/README.md)
+* [The Executive Line (Nanea Reeves)](hotels/Executive)
 * [The Celebrity Line (Madonna)](hotels/Celebrity/README.md)
-* The Signature Line (Patricia Ann Rogers Crawley)
+* [The Signature Line (Patricia Ann Rogers Crawley)](hotels/Signature!
 * [The Dancefloor Line (DJs Paulo & Jackinsky)](hotels/Dancefloor/README.md)
 * The California Line (Everyone)
