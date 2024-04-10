@@ -13,7 +13,13 @@ The motel is ran by the CIA, is not available for anyone from the general public
 On the property you will find an area next to the parking lot (walking out of the lobby, it will be in the right corner of the lot) with what appears to be gravel, it isn't. Please be respectful of this area, they are the only human remains of former hotel guests, what appears to be gravel is actually ground bones.
 
 ## Legacy at Riverdale 
+6603 Church Street (see note)
+Riverdale, Georgia 
+
 This residential apartment community is  ran by the CIA and federal government as a "kill facility." 
+
+> [!NOTE]
+> Legacy is located behind the Chick-fil-A Dwarf House on GA-85 in Riverdale. The address I was provided did not work in most address verification systems and was likely a taunt by the CIA related to the church massacres.
 
 ## Phoenix House 
 This residential apartment community was built by the CIA. It is built over the "bottomless pit" or "abyss" in the Book of Revelation. 
