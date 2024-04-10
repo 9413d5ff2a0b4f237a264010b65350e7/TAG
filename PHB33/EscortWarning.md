@@ -1,7 +1,4 @@
 # A Warning for Escorts
-> [!NOTE]
-> This was originally posted and accessible by https://tinyurl.com/EscortWarning but the government forced GitHub to hide that public gist. See [this](/PHB33/nathan_nsl.md).
-
 If you are a male dancer, escort or just one of the guys who's well known for his endowment and you've been hired by a client to target only one male individual in Atlanta, your life is in grave danger. If this describes your current situation you need to IMMEDIATELY LEAVE ANY PROVIDED ROOM and go to a public place with a lot of people. NOW! 
 
 If you've been provided a free motel or apartment, you need to read [Deadly Accomodations](/etc/lodging.md) now.
@@ -44,3 +41,6 @@ None of them have this...
 If Kelvin is out of his apartment, this is around his neck. 
 
 The CIA will likely make a similar "chain" however they cannot hear or answer a prayer made silently. So say a prayyer the same way as you were first taught by your parents and ask Him if you're dealing with "the true Kelvin" that wrote this. Then go with your gut, **only the Creator can make you feel a certain way.** So after saying a silent prayer if you feel like running and screaming for your life, DO THAT (it means you're not with the true Kelvin). Conversely, if you feel like sitting around in a boring apartment with a completely stranger (me), DO IT as your safe, feels may vary depending on my workload, He may make you feel like parTying or relaxing. 
+
+> [!NOTE]
+> This was originally posted and accessible by https://tinyurl.com/EscortWarning but the government forced GitHub to hide that public gist. See [this](/PHB33/nathan_nsl.md).
