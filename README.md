@@ -3,6 +3,11 @@ This repository holds both code and non-code assets related to The AIDS cure Gen
 
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
 
+## calculator 
+This JavaScript will calculate the number of human lives lost based on current rate of victims added to the TAG death toll.
+
+The calculator calculates human lives, regardless of their identity, beliefs, or associations.
+
 ## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the [massacre of Mount Calvary Baptist Church in Lexington, KY](POW/MCBC) on a Sunday morning in April 2023. The massacre demonstrated their willingness and ability to [make 911 of no use](methods/911.md)
 for the surrounding area and kill people who were peacefully assembled. 
