@@ -40,7 +40,11 @@ None of them have this...
 
 If Kelvin is out of his apartment, this is around his neck. 
 
-The CIA will likely make a similar "chain" however they cannot hear or answer a prayer made silently. So say a prayyer the same way as you were first taught by your parents and ask Him if you're dealing with "the true Kelvin" that wrote this. Then go with your gut, **only the Creator can make you feel a certain way.** So after saying a silent prayer if you feel like running and screaming for your life, DO THAT (it means you're not with the true Kelvin). Conversely, if you feel like sitting around in a boring apartment with a completely stranger (me), DO IT as your safe, feels may vary depending on my workload, He may make you feel like parTying or relaxing. 
+The CIA will likely make a similar "chain" however they cannot hear or answer a prayer made silently. So say a prayyer the same way as you were first taught by your parents and ask Him if you're dealing with "the true Kelvin" that wrote this. Then go with your gut, **only the Creator can make you feel a certain way.** So after saying a silent prayer if you feel like running and screaming for your life, DO THAT (it means you're not with the true Kelvin). 
+
+Conversely, after prayer if you feel like sitting around in a boring apartment with a completely stranger (me), DO IT--you're  safe. Results may vary depending on my workload, He may make you feel like calling everyone you know and telling them, or that you're fine parTying or relaxing. 
+
+On a personal note: The Creator will never tell you have sex with anyone, and I'd never force myself on you or anyone. So always say your prayers SILENTLY, to yourself only.
 
 > [!NOTE]
 > This was originally posted and accessible by https://tinyurl.com/EscortWarning but the government forced GitHub to hide that public gist. See [this](/PHB33/nathan_nsl.md).
