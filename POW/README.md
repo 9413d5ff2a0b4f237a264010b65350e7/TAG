@@ -1,5 +1,5 @@
 > [!WARNING]
-> The places of worship listed here should be avoided. Charades have been established and hold fake services to kill anyone who visits them for any reason to cover-up the massacres.  We strongly advise that you not contact these places of worship. Recent history shows us that anyone contacting, or that has an affiliation with these places of worship may be targeted and attacked.  Regardless of its inclusion on this list,  always pray to verify any place of worship until this genocide is over. 
+> The places of worship listed here should be avoided. Charades have been established and hold fake services to kill anyone who visits them for any reason to cover-up the massacres.  We strongly advise that you not contact these places of worship. Recent history shows us that anyone contacting, or that has an affiliation with these places of worship may be targeted and attacked.  Regardless of its inclusion on this list, always pray for guidance regarding any place of worship until this genocide is over. 
 
 > [!NOTE]
 > This is a list of places of worship that have been attacked and massacred. Details of the attacks will be made is separate and individual posts.
