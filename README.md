@@ -35,6 +35,6 @@ TAG has ended the lives of thousands of innocent individuals and as the bad acto
 * [The Luxury Line (Galardo & Grootegoed Families)](hotels/Luxury/README.md)
 * [The Executive Line (Nanea Reeves)](hotels/Executive)
 * [The Celebrity Line (Madonna)](hotels/Celebrity/README.md)
-* [The Signature Line (Patricia Ann Rogers Crawley)](hotels/Signature!
+* [The Signature Line (Patricia Ann Rogers Crawley)](hotels/Signature/README.md)
 * [The Dancefloor Line (DJs Paulo & Jackinsky)](hotels/Dancefloor/README.md)
 * The California Line (Everyone)
