@@ -1,7 +1,11 @@
 # A Warning for Escorts
-If you are a male dancer, escort or just one of the guys who's well known for his endowment and you've been hired by a client to target only one male individual in Atlanta, your life is in grave danger. If this describes your current situation you need to IMMEDIATELY LEAVE ANY PROVIDED ROOM and go to a public place with a lot of people. NOW! (Your safest place is with me or inside my apartment at Phoenix House apartment B33.)
+If you are a male dancer, escort or just one of the guys who's well known for his endowment and you've been hired by a client to target only one male individual in Atlanta, your life is in grave danger. If this describes your current situation you need to IMMEDIATELY LEAVE ANY PROVIDED ROOM and go to a public place with a lot of people. NOW! 
+
+If you've been provided a free motel or apartment, you need to read [Deadly Accomodations](/etc/lodging.md) now.
 
 Anyone who has taken this job should immediately call those whom they live with and their immediate family and advise them to stay elsewhere for the immediate future.
+
+Once you've moved to another location you can reach out to me using whatever manner they've already told you to. Be normal, and once you are here let me know you're "seeking refuge" and we will help you get to safety. Do not say that until you are in my presence (see verification methods below).
 
 > [!WARNING]
 > DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY!
@@ -9,13 +13,6 @@ Anyone who has taken this job should immediately call those whom they live with 
 You have been pulled into a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. I will gladly help you get your promised pay safely--by escorting you there and away.
 
 Suggestion: The Greyhound bus station is open 24 hours, generally busy and is just steps away from the Garnett MARTA station.
-
-# Deadly Accomodations 
-## Motel 6 Decatur 
-Under no circumstances should anyone in this situation be inside Motel 6 located at 2572 Candler Road or on the motels property. The provided room is not worth your life. The motel is ran by the CIA, is not available for anyone from the general public, and they kill most of the guests when their use is up.
-
-## Legacy at Riverdale 
-This property is ran by the CIA also. Residents move in and disappear forever. 
 
 > [!CAUTION]
 > It is highly recommended that those who have found themselves in this situation find another location prior to reading further. [Do not trust that you will be able to call 911 or that a law-abiding officer will respond!](/methods/911.md)
