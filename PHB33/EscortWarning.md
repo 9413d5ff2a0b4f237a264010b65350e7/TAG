@@ -8,7 +8,7 @@ Suggestion: The Greyhound bus station is open 24 hours, generally busy and is ju
 Under no circumstances should anyone in this situation be inside Motel 6 located at 2572 Candler Road or in the immediate vicinity of the motel. The provided room is not worth your life.
 
 > [!WARNING]
-> DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY! You are involved in a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay.
+> DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY! You are involved in a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. (I will gladly help you get your promised pay safely--by escorting you there and away).
 
 > [!CAUTION]
 > It is highly recommended that those who have found themselves in this situation find another location prior to reading further.
