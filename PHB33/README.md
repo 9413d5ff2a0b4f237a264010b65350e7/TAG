@@ -26,10 +26,6 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 > [!IMPORTANT]
 > The world is not ending today, it's already tomorrow in Australia. The same will be true tomorrow. No planet that ever had life start on it has ever went fully extinct or their world ended.
 
-### Important Note About Beheading 
-Beheading is something that the Creator and His cherubim beg you to cease doing immediately. The victim is fully aware and alive for up to six minutes, they are in extreme pain, it feels like the body is on fire from the cut down, everything inside and out hurts. I've heard the company has told its workers that people are OK, no pain and they accept death, that this is evidenced by the fact they're quiet. Nothing could be further from the truth, without lungs it's impossible to make any noise.
-
-The Creator makes us experience things so we can share that experience with others, so both cherubim have been through it, me almost daily nowadays. It is something so horrible that I wouldn't wish it on the people who have done it to my family and friends.
 
 # Risk of Your Death
 > [!WARNING]
