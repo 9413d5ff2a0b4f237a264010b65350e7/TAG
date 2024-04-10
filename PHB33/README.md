@@ -19,10 +19,7 @@ The US federal government has aided and abetted the CIA, their favorite paramili
 
 The CIA has setup charade churches and other houses of worship, the Mount Calvary Missionary Baptist Church, Inc. is what they operate on my lifelong church's property. The "Missionary" was added as an insult to the Creator and I--since they know that I've said the cherubim "run missions" for Him.
 
-### Why didn't the Creator stop it?
-The Creator never intervenes in events carried out by any of His conscious creatures (including you, the reader). Having an unseen force or hand preventing you from what you know you can do will cause you to retry with increasing intensity. This can make a bad situation incredibly worse. 
 
-The Creator had already hit *undo* on Annie's visit to Mount Calvary Baptist Church in 2018. Annie and a few others knew this and worked to redo the attack with better results--no possible undo from the Creator. They learned about beheading, and that it makes it impossible for a person to be brought back. They also knew how evil it is on the victim and the person doing it, even for those who have just observed the act. Remember, Annie left before anyone was killed at my church.
 
 This entire tragedy and genocide were foretold in the Book of Revelation and in music (see "listen also" below). The Creator knew that the federal government would do this wholesale killing one day and that He would have to address it for everyone's well being. Without His intervention the government would keep this hidden and continue killing groups of peacefully assembled people they want to eliminate. Once genocides start they require external forces to stop them, currently no one can get the word out about it. GitHub is issued National Security Letters often to force them to comply and help the government keep this hidden. (Its still us GitHub, He's still watching and protecting your network and keeping us ahead of the next NSL--hence repos and READMEs only. Thanks GitHub!).
 
