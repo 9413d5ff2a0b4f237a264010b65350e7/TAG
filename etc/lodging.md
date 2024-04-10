@@ -30,3 +30,6 @@ Commonly those staying at a kill facility notice an odd chemical smell that remi
 A common sound heard is reminds the listener of ice cubes in a blender, that is a motorized grinder breaking up the bones left behind from the cremation process. The ground bones are generally disposed of on or next to the property.
 
 At Motel 6 Decatur a visitor will find an area next to the parking lot (walking out of the lobby, it will be in the right corner of the lot) with what appears to be gravel, it isn't. Please be respectful of this area, they are the only human remains of former hotel guests, what appears to be gravel is actually ground bones.
+
+> **Listen:**
+> "As A Matter of Fact" by Vandaveer. When Main says "I scattered the ashes", the song is detailing a PsyOp wherein they brought the "ashes" of my immediate family and nieces to Motel 6 and placed them in an area where I would smoke and discarded my cigarette butts. Main was told to make me smoke there and then tell me after the fact what was there and who they brought in just for me.
