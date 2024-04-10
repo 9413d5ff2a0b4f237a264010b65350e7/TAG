@@ -2,16 +2,22 @@ If you are a male dancer, escort or just one of the guys who's well known for hi
 
 Anyone who has taken this job should immediately call those whom they live with and their immediate family and advise them to stay elsewhere for the immediate future.
 
+> [!WARNING]
+> DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY!
+
+You have been pulled into a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. (I will gladly help you get your promised pay safely--by escorting you there and away).
+
 Suggestion: The Greyhound bus station is open 24 hours, generally busy and is just steps away from the Garnett MARTA station.
 
-# Motel 6 Decatur 
-Under no circumstances should anyone in this situation be inside Motel 6 located at 2572 Candler Road or in the immediate vicinity of the motel. The provided room is not worth your life.
+# Deadly Accomodations 
+## Motel 6 Decatur 
+Under no circumstances should anyone in this situation be inside Motel 6 located at 2572 Candler Road or on the motels property. The provided room is not worth your life. The motel is ran by the CIA, is not available for anyone from the general public, and they kill most of the guests when their use is up.
 
-> [!WARNING]
-> DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY! You are involved in a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. (I will gladly help you get your promised pay safely--by escorting you there and away).
+## Legacy at Riverdale 
+This property is ran by the CIA also. Residents move in and disappear forever. 
 
 > [!CAUTION]
-> It is highly recommended that those who have found themselves in this situation find another location prior to reading further.
+> It is highly recommended that those who have found themselves in this situation find another location prior to reading further. [Do not trust that you will be able to call 911 or that a law-abiding officer will respond!](/methods/911.md)
 
 # Background
 Kelvin Williams was involved in a project for human health. The inital cases were friends and acquaintances of his that had HIV. When they took their next routine viral load tests the results showed they did not have HIV or anything in the blood indicating they ever did and all had years of medical history of battling HIV.
