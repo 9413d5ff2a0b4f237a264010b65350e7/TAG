@@ -5,7 +5,7 @@ Anyone who has taken this job should immediately call those whom they live with 
 > [!WARNING]
 > DO NOT PASS GO, DON'T TRY TO COLLECT ANY MONEY!
 
-You have been pulled into a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. (I will gladly help you get your promised pay safely--by escorting you there and away).
+You have been pulled into a CIA cover-up being conducted under the auspices of the federal government. The CIA has killed men when they attempted to pickup their promised pay. I will gladly help you get your promised pay safely--by escorting you there and away.
 
 Suggestion: The Greyhound bus station is open 24 hours, generally busy and is just steps away from the Garnett MARTA station.
 
