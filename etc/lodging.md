@@ -11,7 +11,7 @@ Decatur, Georgia
 The motel is ran by the CIA, is not available for anyone from the general public--always "sold out" and walk-ins are turned away. 
 
 ## Legacy at Riverdale 
-This residential apartment community is  ran by the CIA and federal government as a "kill facility."
+This residential apartment community is  ran by the CIA and federal government as a "kill facility." 
 
 ## Phoenix House 
-This residential apartment community is  used by the CIA. 
+This residential apartment community was built by the CIA. It is built over the "bottomless pit" or "abyss" in the Book of Revelation. 
