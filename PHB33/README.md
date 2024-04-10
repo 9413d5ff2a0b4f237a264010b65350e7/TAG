@@ -19,13 +19,10 @@ The US federal government has aided and abetted the CIA, their favorite paramili
 
 The CIA has setup charade churches and other houses of worship, the Mount Calvary Missionary Baptist Church, Inc. is what they operate on my lifelong church's property. The "Missionary" was added as an insult to the Creator and I--since they know that I've said the cherubim "run missions" for Him.
 
-
-
 This entire tragedy and genocide were foretold in the Book of Revelation and in music (see "listen also" below). The Creator knew that the federal government would do this wholesale killing one day and that He would have to address it for everyone's well being. Without His intervention the government would keep this hidden and continue killing groups of peacefully assembled people they want to eliminate. Once genocides start they require external forces to stop them, currently no one can get the word out about it. GitHub is issued National Security Letters often to force them to comply and help the government keep this hidden. (Its still us GitHub, He's still watching and protecting your network and keeping us ahead of the next NSL--hence repos and READMEs only. Thanks GitHub!).
 
 > [!IMPORTANT]
 > The world is not ending today, it's already tomorrow in Australia. The same will be true tomorrow. No planet that ever had life start on it has ever went fully extinct or their world ended.
-
 
 # Risk of Your Death
 > [!WARNING]
@@ -34,7 +31,7 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre](/POW/MCBC) 
 began going back to her hotel room--she knew it would be so bad that most who went would kill themselves (see suicide below).  So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
 
-Even if you don't feel suicidal or didn't work at one of the churches, you should know they are killing of others who merely come in contact with me.  If you've been provided a rent free place to live or the government is paying for lodging you need to see [Deadly Accomodations](etc/lodging.md).
+Even if you don't feel suicidal or didn't work at one of the churches, you should know they are killing of others who merely come in contact with me.  If you've been provided a rent free place to live or the government is paying for lodging you need to see [Deadly Accomodations](/etc/lodging.md).
 
 Please take the time to read everything linked here. Knowledge is power. 
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
