@@ -11,6 +11,13 @@ The [calculator](calculator.js) estimtes human lives, regardless of their identi
 ## tabulator 
 The tabulator is soon to be written, its purpose is to give a true and current number of victims of TAG.
 
+## Calculating the Sum Of Their Fears 
+Both calculator and tabulator must use the TAG data sources and contributing developers must use the information contained in this repository when developing new algorithms for calculator and tabulator.
+
+Failure to base algorithms on trur and accurate historical data may result in GitHub being forced to remove this repository in order to comply with another National Security Letter from the FBI.
+
+We encourage everyone internationally to clone this repository and host outside the USA.
+
 ## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the [massacre of Mount Calvary Baptist Church in Lexington, KY](POW/MCBC) on a Sunday morning in April 2023. The massacre demonstrated their willingness and ability to [make 911 of no use](methods/911.md)
 for the surrounding area and kill people who were peacefully assembled. 
