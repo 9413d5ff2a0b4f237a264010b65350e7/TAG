@@ -36,4 +36,8 @@ You should not trust anyone who claims to be Kelvin, even if they take you into 
 There are multiple people who resemble Kelvin that are used by the CIA.
 
 None of them have this...
+![IMG_20240410_164821152](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/165702254/da6f068d-9e07-4bbd-8cd9-8b8949d93668)
 
+If Kelvin is out of his apartment, this is around his neck. 
+
+The CIA will likely make a similar "chain" however they cannot hear or answer a prayer made silently. So say a prayyer the same way as you were first taught by your parents and ask Him if you're dealing with "the true Kelvin" that wrote this. Then go with your gut, **only the Creator can make you feel a certain way.** So after saying a silent prayer if you feel like running and screaming for your life, DO THAT (it means you're not with the true Kelvin). Conversely, if you feel like sitting around in a boring apartment with a completely stranger (me), DO IT as your safe.
