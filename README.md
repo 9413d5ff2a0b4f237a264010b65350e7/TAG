@@ -4,7 +4,7 @@ This repository holds both code and non-code assets related to The AIDS cure Gen
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
 
 ## calculator 
-This JavaScript will calculate the number of human lives lost based on current rate of victims added to the TAG death toll.
+[This JavaScript](calculator.js) will calculate the number of human lives lost based on current rate of victims added to the TAG death toll.
 
 The calculator calculates human lives, regardless of their identity, beliefs, or associations.
 
