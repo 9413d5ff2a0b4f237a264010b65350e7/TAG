@@ -18,10 +18,9 @@ This residential apartment community is  ran by the CIA and federal government a
 ## Phoenix House 
 This residential apartment community was built by the CIA. It is built over the "bottomless pit" or "abyss" in the Book of Revelation. 
 
-### Kill Facilities 
-Anyone staying at one of these kill facilities may be lulled into a false sense of security by on-site security personnel (even actual law enforcement). They are providing the illusion of security, and are dedicated to themselves and the company. They can and do kill company men too.
+### Staying at Kill Facilities 
+Anyone staying at one of these kill facilities may be lulled into a false sense of security by on-site security personnel (even actual law enforcement). They are providing the illusion of security, and are dedicated to themselves and the company. They can and do kill "company men" too or military personnel.
 
 Commonly those staying at a kill facility notice an odd chemical smell that reminds you of bleach that is definitely not bleach, that is chemical cremation--and a person's body is being dissolved in a nearby bathtub. 
 
 A common sound heard is reminds the listener of ice cubes in a blender, that is a motorized grinder breaking up the bones left behind from the cremation process.
-
