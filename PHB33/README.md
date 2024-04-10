@@ -95,8 +95,10 @@ How do you think they got 19 Americans to "do" 9/11? Those guys just thought the
 
 ### Option B: Deceiving the world.
 The Creator told me, "Dylan Roof is innocent because it never happened."
+The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
 
-
+## Don't Even Think of Suicide 
+They really need you and are banking on you to kill your fucking self... Don't! 
 See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
 
 # Dope, Hope and Nope
