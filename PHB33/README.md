@@ -92,7 +92,7 @@ They really need you and are banking on you to kill your fucking self... Don't!
 See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
 
 ## Nighttime Visitors 
-The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. This has driven some to commit suicide. 
+The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. 
 
 # Deadly Accomodations 
 If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
