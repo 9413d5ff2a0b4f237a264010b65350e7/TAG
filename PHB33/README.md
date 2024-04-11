@@ -38,6 +38,39 @@ You do not have to register with GitHub to read this. I’m setting up discussio
 
 Learn more about [TAG](/) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
+# Suicide Risk for Company Workers
+Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  
+
+The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
+
+Many of you were lied to, some coerced, some threatened, some drugged... This is how the CIA or company operates. 
+
+### Option A: Deceiving their employees.
+How do you think they got 19 Americans to "do" 9/11? Those guys just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
+
+### Option B: Deceiving the world.
+The Creator told me, "Dylan Roof is innocent because it never happened."
+The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
+
+## Don't Even Think of Suicide 
+They really need you and are banking on you to kill your fucking self... Don't! 
+See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
+
+## Nighttime Visitors 
+The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. 
+
+# Deadly Accomodations 
+If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
+
+# Discussions 
+You may join in the discussions here. This will require a Github login, they are free. 
+
+GitHub will NOT release your email address. Email addresses are used in their security so they are not given out and cannot be sought with a warrant or court order.
+
+Your username on GitHub should not be anything that is identifying, make a username that is random letters or words combined with the current time like: water0155.
+
+[Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
+
 # The Music
 Want to listen to the music? 
 
@@ -73,42 +106,12 @@ Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
 
-# Suicide Risk for Company Workers
-Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  
-
-The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
-
-Many of you were lied to, some coerced, some threatened, some drugged... This is how the CIA or company operates. 
-
-### Option A: Deceiving their employees.
-How do you think they got 19 Americans to "do" 9/11? Those guys just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
-
-### Option B: Deceiving the world.
-The Creator told me, "Dylan Roof is innocent because it never happened."
-The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
-
-## Don't Even Think of Suicide 
-They really need you and are banking on you to kill your fucking self... Don't! 
-See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
-
-## Nighttime Visitors 
-The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. 
-
-# Deadly Accomodations 
-If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
-
-# Discussions 
-You may join in the discussions here. This will require a Github login, they are free. 
-
-GitHub will NOT release your email address. Email addresses are used in their security so they are not given out and cannot be sought with a warrant or court order.
-
-Your username on GitHub should not be anything that is identifying, make a username that is random letters or words combined with the current time like: water0155.
-
-[Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
-
 Listen also:
-* "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
-* "Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." 
+> **Listen Also**
+> "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
+
+> **Listen Also**
+> "Pope" by Prince -- The Pope is the Creator's public facing man and aren't scared of anyone neither are we; also "git commit" didn't exist at the time, so he says "save." 
 
 Read also:
 * [How The CIA Hinders 911](/methods/911.md)
