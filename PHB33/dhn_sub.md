@@ -12,11 +12,11 @@ Before the tragic events in Kentucky, the Central Intelligence Agency (CIA) prov
 ## Nighttime Visitors 
 CIA trained individuals are entering dwellings and talking to sleeping targets' subconsciouses. The CIA is abusing cloaking technology to enter undetected. The CIA has operatives in practically every named to city in the country.
 
-Everyone’s subconscious lacks the ability to think rationally or logically as by design they only think what the conscious side of the mind does or what they’ve learned on their own. The subconscious controls the body and learned everything it would ever need to do by the age of three. Before you think, I didn’t do *this* by the age of three, you need to think of everything involved in *that* and when you look at everything your body does to do *that* you were doing by three. That super stud one propped up on one arm side penetration move you do while fucking—you did all the same moves when you began rolling over in your crib. Still confused? Think of the most advanced word in your vocabulary or the one that’s the most difficult to pronounce, you didn’t say that at three. Your conscious had to learn it, your subconscious didn’t it had already learned how to make practically every sound you’ll ever make by three. (Listen Also: “God” by Prince, that’s my subconscious making it’s hearing itself for the first and “finding it’s voice” after we are split into two people.)
+Everyone’s subconscious lacks the ability to think rationally or logically as by design they only think what the conscious side of the mind does or what they’ve learned on their own. The subconscious controls the body and learned everything it would ever need to do by the age of three. Before you think, I didn’t do *this* by the age of three, you need to think of everything involved in *that* and when you look at everything your body does to do *that* you were doing by three. That super stud one propped up on one arm side penetration move you do while fucking—you did all the same moves when you began rolling over in your crib. Still confused? Think of the most advanced word in your vocabulary or the one that’s the most difficult to pronounce, you didn’t say that at three. Your conscious had to learn it, your subconscious didn’t it had already learned how to make practically every sound you’ll ever make by three. 
 
 The Creator says, “The conscious thinks it controls its body and the subconscious thinks it can think they are both wrong.”
 
-Right now your subconscious is thinking the same thing you are and is equally as smart as the conscious as it is thinking what the conscious is. The truth is, the two of you don’t know who is doing what. When the conscious goes to sleep or is sleeping (which it must) the subconscious doesn’t know that it is then very limited in its thinking abilities. There’s an old adage, “Being stupid is like being dead, you are the last one to ever know.” Now thinking of that saying, think of the stupidest person you know, and imagine everyone in their world telling them they’re smart. Mamma, Teacher or one of their trusted assistants will do just that, your subconscious will do anything for them.  (Listen also: “200 Balloons” by Prince – This is a song that is still prophecy, I cannot get Main to understand that he doesn’t have to do anything but show intent or the desire to do it for him to be charged, convicted and imprisoned forever.)
+Right now your subconscious is thinking the same thing you are and is equally as smart as the conscious as it is thinking what the conscious is. The truth is, the two of you don’t know who is doing what. When the conscious goes to sleep or is sleeping (which it must) the subconscious doesn’t know that it is then very limited in its thinking abilities. There’s an old adage, “Being stupid is like being dead, you are the last one to ever know.” Now thinking of that saying, think of the stupidest person you know, and imagine everyone in their world telling them they’re smart. Mamma, Teacher or one of their trusted assistants will do just that, your subconscious will do anything for them.  
 
 Some cravings and habits come only from the subconscious. When they make a decision you’ll never know it wasn’t yours. 
 
@@ -25,9 +25,15 @@ If you have experienced sleep paralysis where you wanted to get up but couldn't 
 
 Quite simply: Your subconscious should always be thinking exactly what you are. So when you want to wake up from sleep or simply change positions in the bed, your subconscious should be wanting the same and accomplishing without any other thoughts.
 
-If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"sleep visitors"* from entering your room at night.
+If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"nighttime visitors"* from entering your room at night.
 
 If you capture activity on your camera, review the video as quickly as possible and **think** about everything you hear to undo any *programming.*
+
+> **Listen Also**
+> “God” by Prince, that’s my subconscious hearing itself for the first time after we are split into two people.
+
+> **Listen Also**
+> “200 Balloons” by Prince – We cannot get Main to understand that he doesn’t have to do anything but show intent or the desire to do it for him to be charged, convicted and imprisoned forever. 
 
 > [!NOTE]
 > This write up isn't complete but the attacks on myself and my phone are increasing. Check back in a bit, just reload the page. 
