@@ -94,10 +94,8 @@ See this [suicide information we've compiled just for company workers](/PHB33/su
 # Dope, Hope and Nope
 To all company workers struggling with how they could have been involved with these massacres you will want to [read this](/PHB33/dhn_sub.md).
 
-# Accomodations Warning for The Military 
-If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
-
-**No one at either of these properties should expect 911 called from a landline or mobile phones to reach the true and non-CIA loyal local authorities.** Responding officers if any are loyal to the CIA. 
+# Deadly Accomodations 
+If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
 
 # Discussions 
 You may join in the discussions here. This will require a Github login, they are free. 
