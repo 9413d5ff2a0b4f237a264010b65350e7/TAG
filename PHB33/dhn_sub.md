@@ -1,5 +1,5 @@
 # Dope, Hope and Nope
-When you ask your anyone for dope, you get a bag containing a material or substance that can be one of three things:
+When you acquire your drug of choice, you get a bag containing a material or substance that can be one of three things:
 
 * Dope is what users sought and want to consume. It can be a lot of fun, lowers inhibitions, reduce stress, foster discovery and innovation, and can even help some mental health issues. Dope has been involved in some of the funniest and best times of the past several years for me, especially in 2017.
 * “Hope” is dope except it's been “cut” to help dealers increase profits. It is weaker due to less of the desired drug in the resulting substance. It’s given the moniker  “hope” because it can leave the user doing more hoping for the high of dope. Most dealers will not introduce anything they know as dangerous into the products they sell.
