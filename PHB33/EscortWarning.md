@@ -48,4 +48,4 @@ Conversely, after prayer if you feel like sitting around in a boring apartment w
 > The Creator will never tell you have sex with anyone, and I'd never force myself on you or anyone else.  I've heard this has happened recently by a person they have that looks similar to me.  So always say your prayers SILENTLY, to yourself only.
 
 > [!NOTE]
-> This was originally posted and accessible by https://tinyurl.com/EscortWarning but the government forced GitHub to hide that public gist. See [this](/PHB33/nathan_nsl.md).
+> This was originally posted and accessible by https://tinyurl.com/EscortWarning but the government forced GitHub to hide that public gist. See [this](/PHB33/nathan_nsl.md) - This was posted on Nathan Taylor's memorial account and kikled by National Security Letter from the FBI. "Fuck you US federal government for silencing another TAG victim and costing more lives." -micah 
