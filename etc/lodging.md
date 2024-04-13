@@ -14,13 +14,16 @@ The motel is ran by the CIA, is not available for anyone from the general public
 6603 Church Street (see note)
 Riverdale, Georgia 
 
-This residential apartment community is  ran by the CIA and federal government as a "kill facility." 
+This residential apartment community is  ran by the CIA as a "kill facility." 
 
 > [!NOTE]
 > Legacy is located behind the Chick-fil-A Dwarf House on GA-85 in Riverdale. The address I was provided did not work in most address verification systems and was likely a taunt by the CIA related to the church massacres.
 
 ## Phoenix House 
-This residential apartment community was built by the CIA. It is built over the "bottomless pit" or "abyss" in the Book of Revelation. 
+1296 Murphy Avenue 
+Atlanta, Georgia 
+
+This residential apartment complex is ran by the FBI. 
 
 ### Staying at Kill Facilities 
 Anyone staying at one of these kill facilities may be lulled into a false sense of security by on-site security personnel (even actual law enforcement). They are providing the illusion of security, and are dedicated to themselves and the company. They can and do kill "company men" too or military personnel.
