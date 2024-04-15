@@ -78,6 +78,7 @@ The bodies of those slain were placed in the baptismal which is at the front of 
 The initial operation is referred to by the CIA and others as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
 ## Aftermath 
+### Mount Calvary Missionary Baptist Church, Inc.
 In May 2024 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a charade church with a reported address of of 4743 Todds Road in Lexington. Videos produced by the charade and posted on its Facebook page (see warnings) clearly show the interior of Mount Calvary Baptist Church at 4742 Todds Road.
 
 The sanctuary shows evidence of damages from the massacre and a shoddy restoration.
@@ -91,10 +92,22 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 7. Organ - The churches original organ has been completely removed and discarded. The organ shown in #8 appears to be portable.  An oversized pew from the back wall has been put in its place facing the rear of the church.
 8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
 9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
+    
+#### Missionary
+The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
 
-was formed by the CIA, which then began occupying the church's property. The CIA provided funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Dozens of funerals could be announced at the exact same time. The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
+#### Religious Services 
+Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. The entity has hired numerous actors for their charade and produces photos and videos for distribution on Facebook and other networks, most production occurs on weekdays.
 
-When Micah, a lifelong member of the Mount Calvary Baptist Church, learned of the massacre and viewed photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  
+Sundays at the occupied church are used to continue the cover up of the initial massacre. Persons visiting the church are killed upon entry.
+
+#### Funerals
+In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for numerous decedents can be provided at the same time.
+
+The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
+
+## Regaining Control of Church's Property 
+When Micah, a lifelong member of the true Mount Calvary Baptist Church, learned of the massacre and viewed photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his cousin and pastor, the Rev. Dr. Felix G. Williams, III.  
 
 The correspondence received in response to Micahs letter and actions of the CIA before and after the initial letter clearly indicate to him that they in fact did conduct the massacre.
 
@@ -110,13 +123,9 @@ Micah has stated since the first letter was written, that upon receiving a DNA t
 
 The Creator has confirmed, Micah is the only living member of Mount Calvary Baptist Church. 
 
-The CIA is still operating their Mount Calvary Missionary Baptist Church, Inc. in and on the property owned by Mount Calvary Baptist Church. 
 
-## Missionary
-The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
 
 # Correspondence
-
 The correspondence between Micah and the CIA’s ran church follows, the cherubim has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
 
 * [Micah writes to Rev. Dr. Felix G. Williams, III](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
