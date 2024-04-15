@@ -1,5 +1,4 @@
-# The Massacre at Mount Calvary Baptist Church: The First Congregation in TAG
-
+# The Chainsaw Symphony: The First Congregation of TAG
 ## Lexington, Kentucky — April 2, 2023
 
 In the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
