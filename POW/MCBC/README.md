@@ -83,7 +83,14 @@ In May 2024 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a chara
 The sanctuary shows evidence of damages from the massacre and a shoddy restoration.
 
 ![iMarkup_20240415_083932](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/cde6a2bc-4f77-45c7-91a3-3d2181cf52f6)
-
+1. Mount Calvary Baptist Church's altar has been removed and replaced with a lesser quality one that is missing the words "Do This" from its inscription. It's also built to fit between the two rear-facing pews.
+2. Mount Calvary Baptist Church's lecter was replaced with an lectern of a much lesser quality wood.
+3. This mirrored window is unique to Mount Calvary Baptist Church it provides a view into the sanctuary from the pastor's office. It was used to positively verify the church's sanctuary.
+4. The walls behind the choir stands which have historically been bare now display mission statements and cheap wire crosses.
+5. Piano - The churches upright piano has been removed. An oversized pew from the back wall has been put in its place facing the rear of the church.
+7. Organ - The churches original organ has been completely removed and discarded. The organ shown in #8 appears to be portable.  An oversized pew from the back wall has been put in its place facing the rear of the church.
+8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
+9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
 
 was formed by the CIA, which then began occupying the church's property. The CIA provided funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Dozens of funerals could be announced at the exact same time. The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
 
