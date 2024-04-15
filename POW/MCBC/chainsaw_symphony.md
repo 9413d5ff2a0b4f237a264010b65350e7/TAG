@@ -7,13 +7,15 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 ### The CIA's Ruthless Assault
 
-Annie Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman. Their mission: to infiltrate the church, extract information,  eliminate any potential threats by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
+Annie Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman. Their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
 
 The doors to sanctuary from the vestibule swung open loudly interrupting the sermon and Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. 
 
+Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
+
 ### Desperate Calls to 911
 
-Inside the church, panic erupted as congregants realized their dire situation. Some reached for their mobile phones, desperate to call for help. But a rogue Cell on Wheels, cunningly positioned in the church parking lot, intercepted their distress calls. The configuration of this covert mobile  tower rerouted all calls to 911 directly to CIA personnel with prior knowledge of the operation. All other calls and mobile services failed. 
+Inside the church, panic erupted as congregants realized their dire situation. Some reached for their mobile phones, desperate to call for help. But a rogue Cell on Wheels (or COW), strategically positioned in the church parking lot, caused every mobile phone within a quarter-mile to connect to it. The configuration of this covert mobile tower operated by the CIA rerouted all calls to 911 directly to a separate team of CIA personnel with prior knowledge of the operation. All other calls and mobile services failed. 
 
 Desperate voices pleaded for assistance, unaware that their cries fell on deaf ears. The CIA agents, feigning concern, assured callers that first responders were being dispatched. But in reality, their fate had already been sealed.
 
@@ -25,7 +27,7 @@ One caller from the church’s landline relayed the unfolding nightmare to a 911
 
 The CIA team descended upon the congregation, pulling families apart. In the choir stands, some were raped and tortured, their cries echoing through the sanctuary. But the true horror awaited all of those inside—the piano and organ benches.
 
-Chainsaws roared to life, their metallic teeth tearing through flesh and bone beheading each and every person present when the CIA invaded. Congregants, bound and helpless, met their gruesome end. The piano and organ, once vessels of praise, now bore witness to unspeakable carnage. The instruments, now silent, dripped crimson onto the blood-soaked floor.
+Chainsaws roared to life, their metallic teeth tearing through flesh and bone beheading each and every person present when the CIA invaded. Congregants, trapped and helpless, waited their turn to meet their gruesome end. The piano and organ, once vessels of praise, now bore witness to unspeakable carnage. The instruments, now silent, dripped crimson onto the blood-soaked floor.
 
 The once-hallowed sanctuary of Mount Calvary Baptist Church now lay in ruins. Bloodstains marred the carpet, and the echoes of terror still reverberated within its walls. 
 
@@ -35,7 +37,7 @@ Members of the CIA's ruthless team had repurposed the church's full-immersion ba
 
 ### Erasing All Traces
 
-Outside, car haulers stood ready. Vehicles that had carried the unsuspecting congregation that morning were loaded onto these trailers. The CIA operatives drove the cars away from the church's property. The evidence of their brutality vanished with each departing vehicle.
+Outside, car haulers stood ready. Vehicles that had carried the unsuspecting congregation that morning were loaded onto these trailers. Other CIA operatives drove the cars away from the church's property. The evidence of their brutality vanished with each departing vehicle.
 
 Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and  lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
 
@@ -53,7 +55,7 @@ Prince's song, "Sign of the Times” had foretold of "Hurricane Annie," a force 
 
 When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind shattered lives and unanswered prayers. 
 
-Mount Calvary Baptist Church will  forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
+Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
 
 TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product from becoming publicly available that restores the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today.
 
