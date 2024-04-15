@@ -9,9 +9,7 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 Annie Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman. Their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
 
-The doors to sanctuary from the vestibule swung open loudly interrupting the sermon and Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. 
-
-Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
+The doors to sanctuary from the vestibule swung open loudly interrupting the sermon and Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
 
 ### Desperate Calls to 911
 
@@ -31,7 +29,7 @@ Chainsaws roared to life, their metallic teeth tearing through flesh and bone be
 
 The once-hallowed sanctuary of Mount Calvary Baptist Church now lay in ruins. Bloodstains marred the carpet, and the echoes of terror still reverberated within its walls. 
 
-### The Baptismal  Turned Crematorium
+### The Baptismal Turned Crematorium
 
 Members of the CIA's ruthless team had repurposed the church's full-immersion baptismal pool. What was once a sacred vessel for spiritual rebirth now served as a macabre crematorium. Chemical agents mingled with the holy water, turning it into a caustic solution that consumed the remains of the faithful.
 
