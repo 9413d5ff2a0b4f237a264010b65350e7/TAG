@@ -123,9 +123,7 @@ Micah has stated since the first letter was written, that upon receiving a DNA t
 
 The Creator has confirmed, Micah is the only living member of Mount Calvary Baptist Church. 
 
-
-
-# Correspondence
+### Correspondence
 The correspondence between Micah and the CIA’s ran church follows, the cherubim has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
 
 * [Micah writes to Rev. Dr. Felix G. Williams, III](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230506_kew_mcbc_letter.pdf)
@@ -153,10 +151,10 @@ The correspondence between Micah and the CIA’s ran church follows, the cherubi
     - Micah unable to find any court hearing.  The website didn’t look like an true court’s website.
     - [[Read Order (PDF)]](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
 
-### Response from Mount Calvary Missionary Baptist, Inc.
+#### Response from Mount Calvary Missionary Baptist, Inc.
 ![mcmbc_letterhead](https://github.com/Mission23/MCBCMassacre/assets/140252803/2eee68e2-0184-463e-be1e-f45a617c3818)
 ![doc_20230506_mbmbc_response](https://github.com/Mission23/MCBCMassacre/assets/140252803/0c05bf18-30dc-43cc-8cbf-687157a15d43)
-### Cease & Desist from Attorney for “Church”
+#### Cease & Desist from Attorney for “Church”
 ![doc_griffin_cease_desist](https://github.com/Mission23/MCBCMassacre/assets/140252803/24148a11-c839-4a1e-9567-ddced806a0f8)
 
 ## Surprise, Kill, Vanish 
