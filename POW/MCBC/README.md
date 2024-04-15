@@ -186,7 +186,7 @@ Micah wrote about the event which was not held on a Sunday. [Read more about the
 > **Any interaction or communication with the church in-person, by telephone, or online could result in your death.** The CIA and the US federal government is actively engaged in a coverup. Anyone affiliated with, or expressing interest in, Mount Calvary Baptist Church, is identified and killed. The Creator and His servants strongly advise that no one visit Mount Calvary Baptist Church until they have seen news coverage of the massacre on both the local and world news. 
 
 > [!CAUTION]
-> **Impersonators in use.** Key individuals with Mount Calvary Baptist Church (in Lexington, Kentucky) are being impersonated.  Please pray to verify the identity of anyone who claims to be affiliated with Mount Calvary Baptist Church. [(more)](https://github.com/serviCreator/TAG/discussions/31)
+> **Impersonators in use.** Key individuals with Mount Calvary Baptist Church (in Lexington, Kentucky) are being impersonated.  Please pray to verify the identity of anyone who claims to be affiliated with Mount Calvary Baptist Church. [more](/MCMBCI/pastoral_anniversary.md)
 
 > [!NOTE]
 > Out of His concern for the emotional well-being of readers, the Creator has restricted the disclosure of certain details and  of this event.
