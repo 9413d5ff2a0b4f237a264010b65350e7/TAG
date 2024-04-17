@@ -31,13 +31,13 @@ The once-hallowed sanctuary of Mount Calvary Baptist Church now lay in ruins. Bl
 
 ### The Baptismal Turned Crematorium
 
-Members of the CIA's ruthless team had repurposed the church's full-immersion baptismal pool. What was once a sacred vessel for spiritual rebirth now served as a macabre crematorium. Chemical agents mingled with the holy water, turning it into a caustic solution that consumed the remains of the faithful.
+Members of the CIA's ruthless team had repurposed the church's full-immersion baptismal. What was once a sacred vessel for spiritual rebirth now served as a macabre crematorium. Chemical agents mingled with the holy water, turning it into a caustic solution that consumed the remains of the faithful.
 
 ### Erasing All Traces
 
 Outside, car haulers stood ready. Vehicles that had carried the unsuspecting congregation that morning were loaded onto these trailers. Other CIA operatives drove the cars away from the church's property. The evidence of their brutality vanished with each departing vehicle.
 
-Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and  lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
+Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
 
 ### A Cherub’s Church
 
@@ -55,5 +55,5 @@ When the sun dipped below the horizon, the church stood as a macabre monument to
 
 Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
 
-TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product from becoming publicly available that restores the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today.
+TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark  from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today.
 
