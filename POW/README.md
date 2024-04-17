@@ -9,7 +9,7 @@ Mount Calvary Baptist Church
 Lexington, Kentucky
 - Lifelong church of the Creator's servant Micah 
 - Property is still occupied and used by the CIA to kill worshippers and mourners at false funerals. 
-- [Detailed here](POW/MCBC)
+- [Detailed here](/POW/MCBC)
 
 Mount Zion Baptist Church
 Versailles, KY
