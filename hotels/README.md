@@ -7,7 +7,7 @@ The "hotel" is not a place of rest or solace. It is a theater of malevolence, or
 
 Hotels are a scheme which the CIA uses to plunder the assets of their murder victims. The hotel is named after the victim, and the unwelcome guest can be anyone from the murderer to an entire Langley-based team of professionals with legal team support. Some hotels even have resident impersonators.
 
-The hotels described herein are only financial instruments and investment vehicles not approved by any vote or legislature. Their use is also ignored by federal law enforcement.
+The hotels described herein are only financial instruments and investment vehicles that were not approved by any vote or legislature. Their use is also ignored by federal law enforcement.
 
 ## Hotel Lines
 * The Luxury Line (Galardo & Grootegoed Families)
