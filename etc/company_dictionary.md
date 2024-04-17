@@ -26,6 +26,7 @@ used to describe what the target will look like after the hit (a shot to the fac
 
 Term comes from the appearance of pizza.
 
+# Other Lingo
 ## relatives
 [relatives] (n): when CIA personnel discuss their male relatives it means the company is taking an adversarial/aggressive stance with a target: when CIA personnel discuss a female relative it means the company is going to be friendly towards a target.
 
