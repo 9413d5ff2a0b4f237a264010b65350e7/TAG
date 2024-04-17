@@ -9,3 +9,18 @@ Both the CIA and the US federal government need this hotel to remain operational
 What happened in Sandy Hook had to be hidden from the world, so the CIA has been very busy trying to steal everything. The CIA felt it necessary to massacre Mount Calvary Baptist Church in Lexington, KY where Patricia raised her two children and was a longtime member.
 
 Sandy Hook is home to another church connected to Patricia, Orr Chapel, which stood across from her spot on the family farm was destroyed by a developer and the family's cemetery was dug up and pulverized. When the church's members discovered it, the CIA identified them and killed them and others related to them throughout Maury county.
+
+### Alphabet Street 
+An Alphabet Street is technically any cemetery with headstones because as you walk along a row of graves the alphabet will dance alongside you (on the headstones). My family, multiple churches (one now missing), several funeral homes, maps, genealogy websites, and several others know of two cemeteries along West Sheepneck Road in Sandy Hook, Tennessee: Orr Chapel Cemetery and Sheepneck Cemetery. The two cemeteries are side-by-side. Sheepneck Cemetery was used by the Rogers family and Orr Chapel Cemetery was used by Orr Chapel for the members of the church right beside the cemetery, both in  use since the late 1800s.
+
+The church was demolished and  the cemeteries were dug up and pulverized to make way for a development after the CIA irradiated my family that lived in Sandy Hook killing them all within a day. 
+
+Sandy Hook was an unincorporated city, and is nothing more than farmland owned by the Crawley and Rogers families. 
+
+My cousin, Prince Rogers Nelson, wrote a song called "Alphabet Street" that says "we have to go down, down, down because that's the only way, to make this cruel, cruel world hear what we have to say." 
+
+He also wrote a song about two of Sandy Hook’s permanent residents who were side by side for what we thought for all eternity, interred at Sheepneck Cemetery. My mother, Patricia Ann Crawley Rogers Williams, was emotionally distraught when a funeral director asked her where my grandmother, Lila Crawley Richardson, was to be buried. Mom indicated Sheepneck instinctively. The policies of Sheepneck Cemetery dictated my grandmother's plot--right next to my grandfather. It wasn't because of their marriage, as they never were, in Sheepneck Cemetery the  burial plot is always the next available spot. My grandmother should have never been buried there, she was a Crawley, a member of the other family in Sandy Hook. But my mother didn't even consider that when asked where to bury her as she visited her father's grave every time we were in Sandy Hook. 
+
+For the child born of the woman spoken of in Prince’s "Raspberry Beret" and her descendants, there was only one family in Sandy Hook, Tennessee--ours. I'm not exactly sure when everyone else realized the mistake, but they never tried to correct it even through my step grandmother, the widow of my grandfather and the mother of most of his other children, lived across the street. My mother was the baby of the Rogers clan. 
+
+
