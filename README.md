@@ -3,19 +3,6 @@ This repository holds both code and non-code assets related to The AIDS cure Gen
 
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
 
-## calculator 
-This JavaScript [calculator](calculator.js) will calculate the number of human lived lost based on current rate of victims added to the TAG death toll.
-
-The [calculator](calculator.js) estimtes human lives, regardless of their identity, beliefs, or associations.
-
-## tabulator 
-The tabulator is soon to be written, its purpose is to give a true and current number of victims of TAG.
-
-## Calculating the Sum Of Their Fears 
-Both calculator and tabulator must use the TAG data sources and contributing developers must use the information contained in this repository when developing new algorithms for calculator and tabulator.
-
-Failure to base algorithms on trur and accurate historical data may result in GitHub being forced to remove this repository in order to comply with another National Security Letter from the FBI.
-
 We encourage everyone internationally to clone this repository and host outside the USA.
 
 ## [POW](POW)
