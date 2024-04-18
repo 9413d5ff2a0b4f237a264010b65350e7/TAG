@@ -41,4 +41,10 @@ On a personal note: I truly believe the Creator created the perfect sale of gran
 
 So, when I find graves in the wrong places, I'll simply go "down, down, down" and have my family members "brought up." When they aren't, I'll have the attention of the world and I can finally get the word out about TAG.
 
-See also: [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV)
+> **Listen Also**
+> "Alphabet Street" by Prince;
+> "Sign of the Times" by Prince;
+> "7" by Prince 
+
+> **Read Also**
+> [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV)
