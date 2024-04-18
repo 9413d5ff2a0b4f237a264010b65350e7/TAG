@@ -24,15 +24,16 @@ The "hotel" is not a place of rest or solace. It is a theater of malevolence, or
 
 The most important hotel is in the Signature Line, the PARC, named for my mother Patricia Ann Rogers Crawley. It is based in Sandy Hook, Tennessee. The CIA must hide the atrocities they carried out there and need her hotel to prevent us from showing the world.
 
-Prince's song "Alphabet Street" gives you some insight. [You can read about it here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md)
-
-If you're reading along in the Bible, you can read about "the street" in [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV).
-
 * [The Luxury Line (Galardo & Grootegoed Families)](hotels/Luxury/README.md)
 * [The Executive Line (Nanea Reeves)](hotels/Executive)
 * [The Celebrity Line (Madonna)](hotels/Celebrity/README.md)
 * [The Signature Line (Patricia Ann Rogers Crawley)](hotels/Signature/README.md)
 * [The Dancefloor Line (DJs Paulo & Jackinsky)](hotels/Dancefloor/README.md)
 * The California Line (Everyone)
+
+> **Listen Also**
+> "Alphabet Street" by Prince - That's not a Ford Thunderbird! [Wikipedia](https://en.m.wikipedia.org/wiki/Thunderbird_(mythology)) - [Learn more about our "Tennessee" here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/hotels/Signature/README.md)
+
+If you're reading along in the Bible, you can read about "the street" in [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV).
 
 Also see: [Last Days](https://github.com/LastDays2024)
