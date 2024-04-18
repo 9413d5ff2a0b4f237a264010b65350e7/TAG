@@ -1,5 +1,7 @@
 # TAG
-This repository holds both code and non-code assets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
+TAG or The AIDS-Cure Genocide, which is corporate greed and BigPharma's response to an HIV/AIDS cure, a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
+
+This repository holds both code (for NSL-proofing) and non-code assets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
 
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
 
