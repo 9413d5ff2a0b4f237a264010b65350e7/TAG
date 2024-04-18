@@ -27,7 +27,7 @@ He also wrote a song about two of Sandy Hook’s permanent residents who were si
 
 For the child born of the woman spoken of in Prince’s "Raspberry Beret" and her descendants, there was only one family in Sandy Hook, Tennessee--ours. I'm not exactly sure when everyone else realized the mistake, but they never tried to correct it even through my step grandmother, the widow of my grandfather and the mother of most of his other children, lived across the street. My mother was the baby of the Rogers clan. I am calling the upcoming grave audit of my family's cemetery, "Lila's Revenge," because of my step-grandmother never demanded she be dug up, how on Earth could the CIA even fathom such. 
 
-### A Great Millstone
+### The Great Millstone
 There is a headstone on my alphabet street that had an inscription that read (something like) "God loves you a whole lot." The exact inscription is now only known to God and myself. However, because of the vernacular of Sandy Hook and my family it is truly bad English.
 
 The monument company that milled the stone had employees who cared enough about quality to not send out such a permanent display of really bad English. So in a time before computers, the paper work order was reviewed, and several of those employees "signed off" on it after calling my country family repeatedly to confirm it. One even went letter-by-letter and was dumbfounded that a family in the USA could be so ignorant. The headstone arrived and my family admired its beauty and of the inscription simply said "Amen."
