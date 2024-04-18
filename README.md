@@ -45,3 +45,11 @@ The most important hotel is in the Signature Line, the PARC, named for my mother
 If you're reading along in the Bible, you can read about "the street" in [Revelation 18:21-24](https://www.biblegateway.com/passage/?search=Revelation%2018:21-24&version=KJV).
 
 Also see: [Last Days](https://github.com/LastDays2024)
+
+# About The Music
+The Creator has used music to light the path. Prince and Vandaveer are my primary go-tos, Prince is my cousin and Mark of Vandaveer was my best friend and classmate for years.
+
+Everyone needs to get ready and [Dig Down Deep](https://youtu.be/0kLylyZciMg?si=M6cTCeHcdT1RYHaf).
+
+> [!CAUTION]
+> The government and CIA are actively trying to silence the Creator's words, so ask an older person about Prince's lyrics and for Vandaveer make sure you memorize Mark & Rose's faces and voices (in the Dig Down Deep video above) it will help you detect fake or altered Vandaveer. 
