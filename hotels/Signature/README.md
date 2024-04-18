@@ -34,7 +34,7 @@ The monument company that milled the stone had employees who cared enough about 
 
 I have spoken to God, who is the Creator, He was not offended by their poor English, He appreciates all worship. He did tell me though that He would tell me the exact location of the archival box contraining the paperwork bearing the signatures of those employees who cared enough to do their jobs thoroughly.
 
-> [!INFORMATION]
+> [!NOTE]
 > At the end of "Alphabet Street" by Prince you'll hear the alphabet being recited with the letter "G" skipped, He responds after the letter "H".
 
 On a personal note: I truly believe the Creator created the perfect sale of granite headstones by a large, far away, monument company that caused my family to "clip the coupon" and call them for the order.  Had it been a local company, they would have either spoken the vernacular or knew the family and would have never bothered with so many verifications of the order. Because of that single piece of paper, I have the proof that the headstones there now are fake.
