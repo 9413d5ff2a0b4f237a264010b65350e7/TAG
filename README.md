@@ -5,6 +5,12 @@ From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the ch
 
 We encourage everyone internationally to clone this repository and host outside the USA.
 
+## About GitHub
+First, We would like to thank GitHub for enduring the government's pressure, We know it's been tremendous, He is still watching your systems and employees and won't stop.
+
+We utilize GitHub and these "vaults" because of the nature of git. Our vaults are typical accounts that have 2FA that we INTENTIONALLY threw away the credentials only allowing a user or two to WRITE to. This helps should they steal (again) my devices and attempt to edit. When that happens BLAME!
+
+
 ## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the [massacre of Mount Calvary Baptist Church in Lexington, KY](POW/MCBC) on a Sunday morning in April 2023. The massacre demonstrated their willingness and ability to [make 911 of no use](methods/911.md)
 for the surrounding area and kill people who were peacefully assembled. 
