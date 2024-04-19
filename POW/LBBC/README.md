@@ -4,7 +4,7 @@ Lexington Bethel Baptist Church became the unsuspecting victims of a meticulousl
 
 ## The Setting
 
-Lexington Bethel Baptist Church, nestled at 4686 Todd's Road, stood as a beacon of faith in the remote eastern side of Lexington. Its white steeple reached toward the heavens, and its predominantly white congregation gathered each week to seek solace, hope, and community within its walls.
+Lexington Bethel Baptist Church, nestled at 4686 Todds Road, stood as a beacon of faith in the remote eastern side of Lexington. Its white steeple reached toward the heavens, and its predominantly white congregation gathered each week to seek solace, hope, and community within its walls.
 
 ## The Dark Conspiracy
 
