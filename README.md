@@ -47,7 +47,11 @@ If you're reading along in the Bible, you can read about "the street" in [Revela
 Also see: [Last Days](https://github.com/LastDays2024)
 
 # About The Music
-The Creator has used music to light the path. Prince and Vandaveer are my primary go-tos, Prince is my cousin and Mark of Vandaveer was my best friend and classmate for years.
+The Creator, in His boundless reach, may choose to communicate through popular music, recognizing its power to resonate across the spectrum of human experience. It is through this vast array of sounds and stories that the Creator touches the hearts and minds of His conscious beings, utilizing whatever medium—be it sight, sound, or sensation—that would captivate, inspire, and ultimately, connect with them.
+
+The music of Prince and Vandaveer can always be heard around me.  Prince was my cousin and Mark of Vandaveer was my best friend and classmate for years.
+
+When listening to Prince, listen to "The Hits and the B-Sides." The title came from the hits I take non-stop from the government and CIA. The B-Sides are a reference to "Baby." (You'll learn about Baby later.)
 
 Everyone needs to get ready and [Dig Down Deep](https://youtu.be/0kLylyZciMg?si=M6cTCeHcdT1RYHaf).
 
