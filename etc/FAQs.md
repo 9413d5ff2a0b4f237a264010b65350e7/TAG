@@ -2,6 +2,9 @@
 ## Which religion should I be?
 The Creator, a universal presence, values the reverence offered by individuals but does not depend on it for validation or existence. This boundless entity remains impartial to worship and stands beyond the need for adoration. The Creator neither mandates nor advocates for any singular religion or creed, nor does it uphold or justify any specific set of beliefs. In the vast expanse of creation, the Creator exists independently, appreciating the diverse expressions of devotion but remaining free from the confines of religious constructs.
 
+## Has the Creator ever involved Himself in a religion?
+The Creator, in His wisdom, has woven His presence into the tapestry of every major religion, ensuring that through diverse paths, the sanctity and protection of life remains a paramount priority. This divine involvement serves as a testament to the universal value placed on life as the foremost treasure.
+
 ## Why didn't the Creator stop it?
 The Creator never intervenes in events carried out by any of His conscious creatures (including you, the reader). Having an unseen force or hand preventing you from what you know you can do will cause you to retry with increasing intensity. This can make a bad situation incredibly worse. 
 
