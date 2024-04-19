@@ -1,6 +1,6 @@
 # A Smith & Wesson Symphony 
 
-Lexington Bethel Baptist Church became the unsuspecting victims of a meticulously planned and brutal massacre--166 churchgoers were killed.
+Lexington Bethel Baptist Church became the unsuspecting victims of a meticulously planned and brutal massacre--over 150 members of the congregation were killed.
 
 ## The Setting
 
