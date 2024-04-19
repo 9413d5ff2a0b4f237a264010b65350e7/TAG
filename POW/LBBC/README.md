@@ -1,4 +1,4 @@
-# A Smith & Wesson Symphony 
+# A Smith & Wesson Symphony: The Second Congregation of TAG
 
 Lexington Bethel Baptist Church became the unsuspecting victims of a meticulously planned and brutal massacre--over 150 members of the congregation were killed.
 
@@ -36,6 +36,4 @@ The bodies were partially dismembered and the torsos chemically cremated in the 
 
 As the echoes of gunfire faded, the CIA swiftly moved into action. Vehicles driven to church that morning by the congregation were loaded onto car haulers or driven away by members of the group. Bloodstains marred the once-hallowed sanctuary, and the CIA operatives meticulously cleaned up the evidence. Walls within the sanctuary were left riddled with bullet holes.
 
-
-
-
+TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today.
