@@ -10,19 +10,20 @@ Lexington, Kentucky
 - Lifelong church of the Creator's servant Micah 
 - Property is still occupied and used by the CIA to kill worshippers and mourners at false funerals. 
 - [Detailed here](/POW/MCBC)
-
-Mount Zion Baptist Church
-Versailles, KY
-- Longtime fellowship partner of Mount Calvary Baptist Church. 
-- Noticed the oddities at, and expressed concerns for Mount Calvary Baptist Church
-- Recent threat indicates the CIA may begin using their property for funerals also. 
+- Read ["A Chainsaw Symphony"](/POW/MCBC/chainsaw_symphony.md)
 
 Lexington Bethel Baptist Church
 4686 Todds Road
 Lexington, KY
 - Neighboring church of Mount Calvary Baptist Church, can see each other's property. 
 - Expressed concerns about the number of funerals and other irregular activity at Mount Calvary Baptist Church.
-- [Read article here.](/POW/LBBC)
+- Read ["A Smith & Wesson Symphony"](/POW/LBBC)
+
+Mount Zion Baptist Church
+Versailles, KY
+- Longtime fellowship partner of Mount Calvary Baptist Church. 
+- Noticed the oddities at, and expressed concerns for Mount Calvary Baptist Church
+- Recent threat indicates the CIA may begin using their property for funerals also. 
 
 House of God
 Georgetown Street
