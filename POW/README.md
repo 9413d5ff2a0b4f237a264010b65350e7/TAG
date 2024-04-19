@@ -21,7 +21,8 @@ Lexington Bethel Baptist Church
 4686 Todds Road
 Lexington, KY
 - Neighboring church of Mount Calvary Baptist Church, can see each other's property. 
-- Expressed concerns about the number of funerals and other irregular activity at Mount Calvary Baptist Church. 
+- Expressed concerns about the number of funerals and other irregular activity at Mount Calvary Baptist Church.
+- [Read article here.](/POW/LBBC)
 
 House of God
 Georgetown Street
