@@ -25,6 +25,13 @@ On the other hand, if you say, "I'm planning to go to work next week where I wil
 
 You can also find a member of the clergy (priest or pastor) to discuss your thoughts on suicide. What is disclosed to a member of the clergy is generally never sought in court as the clergy historically never discuss what you talk about with them to nobody by God.
 
+## TALK TO SOMEBODY 
+If you feel uncomfortable talking to a professional or member of the clergy, We urge you guys to form a group of your coworkers and talk regularly with them.
+
+DO NOT EVER USE SIGNAL, TELEGRAM, WHATSAPP OR ZOOM. Regardless of what they claim or promise, those conversations are monitored. Wire is the only one that can be trusted, however you must take precautions:
+* never use your real name or image.
+* never send as a message either.
+
 > [!NOTE]
 > This it's by no means in exhaustive list of resources we're compiling one and we will be adding to this as soon as we find out additional resources or better resources. 
 
