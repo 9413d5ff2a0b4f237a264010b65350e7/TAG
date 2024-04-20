@@ -4,11 +4,7 @@ TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around t
 
 In April 2023, in an effort to eliminate anyone else associated with Kelvin E. Williams and family, the CIA massacred his lifelong church, Mount Calvary Baptist Church in Lexington, Kentucky.  Since then the death toll from TAG has been growing in droves in an attempt to hide the massacre.
 
-Lexington Bethel Baptist Church became the next unsuspecting victims of a meticulously planned and brutal massacre--over 150 members of the congregation were killed.
-
-## The Church
-
-Lexington Bethel Baptist Church, nestled at 4686 Todds Road, stood as a beacon of faith in the remote eastern side of Lexington. Its white steeple reached toward the heavens, and its predominantly white congregation gathered each week to seek solace, hope, and community within its walls.
+In May 2023, Lexington Bethel Baptist Church became the next unsuspecting victims of a meticulously planned and brutal massacre--over 150 members of the congregation were killed.  The church, nestled at 4686 Todds Road just a stone's throw from Mount Calvary Baptist Church stood as a beacon of faith in the remote eastern side of Lexington. Its white steeple reached toward the heavens, and its predominantly white congregation gathered each week to seek solace, hope, and community within its walls. 
 
 ## The Dark Conspiracy
 
