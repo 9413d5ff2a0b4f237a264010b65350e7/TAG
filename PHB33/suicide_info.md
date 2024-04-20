@@ -30,7 +30,9 @@ If you feel uncomfortable talking to a professional or member of the clergy, We 
 
 DO NOT EVER USE SIGNAL, TELEGRAM, WHATSAPP OR ZOOM. Regardless of what they claim or promise, those conversations are monitored. Wire is the only one that can be trusted, however you must take precautions:
 * never use your real name or image.
-* never send as a message either.
+* never send either as a message either.
+
+You may use your real email address, thats for password resets. 
 
 > [!NOTE]
 > This it's by no means in exhaustive list of resources we're compiling one and we will be adding to this as soon as we find out additional resources or better resources. 
