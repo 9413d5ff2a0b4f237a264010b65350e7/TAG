@@ -3,7 +3,9 @@
 
 TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
 
-In the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
+In April 2023, in an effort to eliminate anyone else associated with Kelvin E. Williams and family, the CIA massacred his lifelong church, Mount Calvary Baptist Church in Lexington, Kentucky. Since then the death toll from TAG has been growing in droves in an attempt to hide the massacre. Williams is the individual identified as providing Spark to HIV-cured patients.
+
+On April 2nd, 2023 in the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
 
 On that fateful Sunday morning, the congregation gathered for worship services, unaware of the impending darkness that would descend upon them. Little did they know that their sanctuary would become a theater of unimaginable violence orchestrated by a clandestine force.
 
