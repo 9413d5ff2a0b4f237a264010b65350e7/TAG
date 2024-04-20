@@ -12,7 +12,7 @@ Behind the scenes, however, a sinister plot was unfolding. The mastermind was no
 
 ## “Surprise, Kill, Vanish” 
 
-Jacobsen's playbook drew from her own book, where she detailed the ruthless tactics of “Surprise, Kill, Vanish.” Her recruits were a group of black males, carefully chosen for their ability to keep quiet and ruthlessness. Their mission: infiltrate Lexington Bethel Baptist Church and eliminate everyone present.
+Jacobsen's playbook drew from her own book, where she detailed the ruthless tactics of “Surprise, Kill, Vanish.” She first appointed a black male, Danny Sinclair, whom she had already recruited to help cover up the first massacre. Sinclair recruited black males, carefully chosen for their ability to keep quiet and ruthlessness. Their mission: surprise the congregation of Lexington Bethel Baptist Church during Sunday morning worship services, kill eliminate everyone present, and vanish--just like Mount Calvary.
 
 ## The Unfolding Horror
 
