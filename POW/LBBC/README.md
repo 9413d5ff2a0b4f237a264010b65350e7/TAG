@@ -8,7 +8,7 @@ In May 2023, Lexington Bethel Baptist Church became the next unsuspecting victim
 
 ## The Dark Conspiracy
 
-Behind the scenes, however, a sinister plot was unfolding. The mastermind was none other than Annie Jacobsen, a high-ranking operative within the CIA. Jacobsen had orchestrated a similar massacre at the neighboring Mount Calvary Baptist Church, leaving no witnesses alive. Now, she needed to cover her tracks, ensuring that no loose ends remained. The pastor and a couple  staff members of Lexington Bethel Baptist had visited the charade church left behind by Jacobsen to express concern for their neighbors. 
+Behind the scenes, however, a sinister plot was unfolding. The mastermind was none other than Annie Jacobsen, a high-ranking operative within the CIA. Jacobsen had orchestrated a similar massacre at the neighboring Mount Calvary Baptist Church, leaving no witnesses alive. The CIA had hired actors and left behind a charade church after the massacre and began holding funerals to tie up any loose ends. Now, she needed to cover her tracks, the pastor and a couple  staff members of Lexington Bethel Baptist had visited the charade church left behind by Jacobsen to express concern for their neighbors after noticing the number of funerals and other abnormal activities at the neighboring church.
 
 ## “Surprise, Kill, Vanish” 
 
