@@ -1,6 +1,8 @@
 # The Chainsaw Symphony: The First Congregation of TAG
 ## Lexington, Kentucky — April 2, 2023
 
+TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
+
 In the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
 
 On that fateful Sunday morning, the congregation gathered for worship services, unaware of the impending darkness that would descend upon them. Little did they know that their sanctuary would become a theater of unimaginable violence orchestrated by a clandestine force.
