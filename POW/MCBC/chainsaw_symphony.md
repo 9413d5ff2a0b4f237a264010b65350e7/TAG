@@ -58,6 +58,3 @@ Prince's song, "Sign of the Times” had foretold of "Hurricane Annie," a force 
 When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind shattered lives and unanswered prayers. 
 
 Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
-
-TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark  from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today.
-
