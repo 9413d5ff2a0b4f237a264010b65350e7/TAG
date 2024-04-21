@@ -18,7 +18,7 @@ The Creator says, “The conscious thinks it controls its body and the subconsci
 
 Right now your subconscious is thinking the same thing you are and is equally as smart as the conscious as it is thinking what the conscious is. The truth is, the two of you don’t know who is doing what. When the conscious goes to sleep or is sleeping (which it must) the subconscious doesn’t know that it is then very limited in its thinking abilities. There’s an old adage, “Being stupid is like being dead, you are the last one to ever know.” Now thinking of that saying, think of the stupidest person you know, and imagine everyone in their world telling them they’re smart. Mamma, Teacher or one of their trusted assistants will do just that, your subconscious will do anything for them.  
 
-Some cravings and habits come only from the subconscious. When they make a decision you’ll never know it wasn’t yours. 
+Some cravings and habits come only from the subconscious. When they make a decision you’ll never know it wasn’t yours. If you have developed a new behavior in or habit that makes no sense to you, its likely from your subconscious and its highly likely, if its a brand new behavior, one that the night talkers have told your subconscious to do.
 
 ## Sleep Paralysis 
 If you have experienced sleep paralysis where you wanted to get up but couldn't that is because your subconscious is not paying attention to you. This only occurs when they are being engaged by someone else.
@@ -28,6 +28,13 @@ Quite simply: Your subconscious should always be thinking exactly what you are. 
 If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"nighttime visitors"* from entering your room at night.
 
 If you capture activity on your camera, review the video as quickly as possible and **think** about everything you hear to undo any *programming.*
+
+## About Main or Baby
+Main aka Baby is the name of my subconscious, the one who talks when I'm asleep. Unlike most subconsciouses, Main KNOWS he is a subconscious and was supposed to help the entire human race. But as conscious entities do sometimes, Main embraces fame and promised fortunes.
+
+Main likes to do things to hurt me, get me killed and support Annie who he considers is his "mamma" who can do no wrong.
+
+Main knows what he's doing, doesn't want the same done to him and definitely knows right from wrong. the Creator has told him every time he decided to do something stupid. 
 
 > **Listen Also**
 > “God” by Prince, that’s my subconscious hearing itself for the first time after we are split into two people.
