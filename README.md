@@ -24,6 +24,8 @@ The central Kentucky congregations that have been attacked and massacred include
 * [Lexington Bethel Baptist Church](/POW/LBBC)
 * House of God
 * Mount Zion Baptist
+
+To understand how our company views organized religion and individual beliefs in a higher power, and the influence these perspectives have on our future direction, we encourage you to **learn more** about our stance.
   
 # How They Hide TAG
 The CIA developed a plan and scheme to hide the death toll of this genocide. The plan leaves no bodies, the bodies of victims are dissolved using chemical cremation and "hotels" are constructed.
