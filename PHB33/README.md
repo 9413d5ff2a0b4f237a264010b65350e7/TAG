@@ -28,6 +28,7 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 * Our birthdays are March 23 (Kelvin) and September 23 (TomTom).
 * The Earth's current tilt is 23 degrees.
 * This is our 23rd time on Earth (we are always born here).
+* I believe I've heard every 2&3 combination possible, trying to get Main/Baby to take over.
 
 # Risk of Your Death
 > [!WARNING]
