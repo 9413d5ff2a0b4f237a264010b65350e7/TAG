@@ -24,6 +24,11 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 > [!IMPORTANT]
 > The world is not ending today, it's already tomorrow in Australia. The same will be true tomorrow. No planet that ever had life start on it has ever went fully extinct or their world ended.
 
+# About 23
+* Our birthdays are March 23 (Kelvin) and September 23 (TomTom).
+* The Earth's current tilt is 23 degrees.
+* This is our 23rd time on Earth (we are always born here).
+
 # Risk of Your Death
 > [!WARNING]
 > Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone. (See Accomodations Warning below for the military).
@@ -61,15 +66,6 @@ The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it mak
 
 # Deadly Accomodations 
 If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
-
-# Discussions 
-You may join in the discussions here. This will require a Github login, they are free. 
-
-GitHub will NOT release your email address. Email addresses are used in their security so they are not given out and cannot be sought with a warrant or court order.
-
-Your username on GitHub should not be anything that is identifying, make a username that is random letters or words combined with the current time like: water0155.
-
-[Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
 
 # The Music
 Want to listen to the music? 
