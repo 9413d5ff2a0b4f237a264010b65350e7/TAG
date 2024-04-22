@@ -21,3 +21,6 @@ Inside the sanctuary, chaos reigned. Congregants were accosted, beaten, and forc
 The bodies were partially dismembered and the torsos chemically cremated in the baptismal. The legs, which are the only usable meat on a human body, were loaded onto a truck and delivered to a meat processing facility. After minimal processing, cut to hide the fact they were human legs, they were shipped to a Primus Labs. 
 
 As the echoes of gunfire faded, the CIA swiftly moved into action. Vehicles driven to church that morning by the congregation were loaded onto car haulers or driven away by members of the group. Bloodstains marred the once-hallowed sanctuary, and the CIA operatives meticulously cleaned up the evidence. Walls within the sanctuary were left riddled with bullet holes.
+
+See Also:
+[Aiden Kills in Kentucky](https://youtu.be/UwYCOAxuidk?si=eB7P2DRuEtm2dzft)
