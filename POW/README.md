@@ -38,10 +38,16 @@ Lexington, KY
 
 ## The Cycle Continues
 The CIA jokingly refers to Prince's "Sign of the Times" verse that says:
-    *"Hurricane Annie tore the ceiling off a church and killed everyone inside."*
+
+- *"Hurricane Annie tore the ceiling off a church and killed everyone inside."*
+    
 Or the line from The Weather Girl's "It's Raining Men" verse that says:
-     *"Rip off the roof and stay in bed!"*
+
+- *"Rip off the roof and stay in bed!"*
 
 ![IMG_20240421_095654181](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/99330f0c-7190-4daf-be2d-bbdd8a5594be)
 
+.. As seen in Publix, intentionally worn to get me to respond, on a day filled with other taunts and jokes about the massacres.
+
+![IMG_1576](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/09b4ba40-3192-4aa3-81cc-a08b1509836f)
 
