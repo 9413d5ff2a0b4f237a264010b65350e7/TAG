@@ -55,8 +55,7 @@ Many of you were lied to, some coerced, some threatened, some drugged... This is
 How do you think they got 19 Americans to "do" 9/11? Those guys just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
 ### Option B: Deceiving the world.
-The Creator told me, "Dylan Roof is innocent because it never happened."
-The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
+The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI/roof.md)."  The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
 
 ## Don't Even Think of Suicide 
 They really need you and are banking on you to kill your fucking self... Don't! 
