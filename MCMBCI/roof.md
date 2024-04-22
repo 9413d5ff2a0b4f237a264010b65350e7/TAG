@@ -8,7 +8,8 @@ Roof was ultimately selected from the list due to his lack of family and few fri
 
 The CIA had made up the story of Mother Emmanuel in an effort to test public sentiment following the news of blacks being massacred in a church. One of the many manufactured stories the CIA has used to test how it would be received by the public. It is important to remember nearly every event that has galvanized the public has been performed by the CIA since JFK's assassination. The reason for the tests, to see what they need to change in the event narrative or the actual event so they are never suspected or detected.
 
-My curiosity was piqued when I noticed what most would consider a misspelling of Immanuel on the flyer for the Mount Calvary Missionary Baptist Church, Inc.'s Pastoral Anniversary event. Then I remembered Mother Emmanuel in South Carolina. I checked with the Boss and He confirmed that Dylan Roof had indeed been setup. 
+My curiosity was piqued when I noticed what most would consider a misspelling of Immanuel on the flyer for the Mount Calvary Missionary Baptist Church, Inc.'s [Pastoral Anniversary event](/MCMBCI/pastoral_anniversary.md)
+. Then I remembered Mother Emmanuel in South Carolina. I checked with the Boss and He confirmed that Dylan Roof had indeed been setup. 
 
 ![FB_IMG_1705566697555.jpg](https://github.com/serviCreator/TAG/assets/155787787/baca31f8-b790-4980-8d81-879c1d4e89b9)
 
