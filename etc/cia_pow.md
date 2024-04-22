@@ -8,5 +8,5 @@ In the world of the Central Intelligence Agency, a powerful entity that seeks to
 
 3. **Airwaves and Suggestion**: The CIA recognizes that the airwaves—channels through which information flows—play a crucial role. However, believers appear less influenced by these channels. Perhaps their unwavering faith shields them from subtle suggestions or mind control attempts orchestrated by external forces.
 
-4. **Database Dilemma**: CivCenter faces a dilemma. On one hand, it desires public funding and approval. On the other, it grapples with the presence of believers within the population. The solution? The CIA continues eliminating believers by and through hidden massacres at places of worship and infiltrating the population of believers using various methods.
+4. **The Dilemma**: The CIA faces a dilemma. On one hand, it desires public funding and approval. On the other, it grapples with the presence of believers within the population. The solution? The CIA continues eliminating believers by and through hidden massacres at places of worship and infiltrating the population of believers using various methods.
 
