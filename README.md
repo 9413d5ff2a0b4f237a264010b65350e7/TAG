@@ -25,7 +25,7 @@ The central Kentucky congregations that have been attacked and massacred include
 * House of God
 * Mount Zion Baptist
 
-To understand how our company views organized religion and individual beliefs in a higher power, and the influence these perspectives have on our future direction, we encourage you to **learn more** about our stance.
+[Learn more](/etc/cia_pow.md) about how the CIA views organized religion and an individual's belief in a higher power, and how these perspectives affect **everyone** around you.
   
 # How They Hide TAG
 The CIA developed a plan and scheme to hide the death toll of this genocide. The plan leaves no bodies, the bodies of victims are dissolved using chemical cremation and "hotels" are constructed.
