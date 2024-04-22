@@ -22,6 +22,3 @@ The bodies were partially dismembered and the torsos chemically cremated in the 
 
 As the echoes of gunfire faded, the CIA swiftly moved into action. Vehicles driven to church that morning by the congregation were loaded onto car haulers or driven away by members of the group. Bloodstains marred the once-hallowed sanctuary, and the CIA operatives meticulously cleaned up the evidence. Walls within the sanctuary were left riddled with bullet holes.
 
-See Also:
-* [Aiden Kills in Kentucky](https://youtu.be/UwYCOAxuidk?si=eB7P2DRuEtm2dzft)
-     - Aiden uses the alias of "Greg"
