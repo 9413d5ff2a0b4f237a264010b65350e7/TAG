@@ -1,6 +1,7 @@
 > [!WARNING]
 > The places of worship listed here should be avoided. Charades have been established and hold fake services to kill anyone who visits them for any reason to cover-up the massacres.  We strongly advise that you not contact these places of worship. Recent history shows us that anyone contacting, or that has an affiliation with these places of worship may be targeted and attacked.  Regardless of its inclusion on this list, always pray for guidance regarding any place of worship.
 
+# Places of Worship Massacred
 > [!NOTE]
 > This is a list of places of worship that have been attacked and massacred. Details of the attacks will be made is separate and individual READMEs.
 
@@ -34,4 +35,13 @@ House of God
 Broadway Avenue
 Lexington, KY
 - Expressed concerns about House of God on Georgetown Street
+
+## The Cycle Continues
+The CIA jokingly refers to Prince's "Sign of the Times" verse that says:
+    *"Hurricane Annie tore the ceiling off a church and killed everyone inside."*
+Or the line from The Weather Girl's "It's Raining Men" verse that says:
+     *"Rip off the roof and stay in bed!"*
+
+![IMG_20240421_095654181](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/99330f0c-7190-4daf-be2d-bbdd8a5594be)
+
 
