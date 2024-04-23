@@ -1,3 +1,9 @@
+Quick Links:
+* [TAG - The AIDS-Cure Genocide](/)
+* [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
+* [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
+* [Madonna and the Impersonation](/hotels/Celebrity)
+***
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see *"Suicide Risk for Company Workers"* below.
 
