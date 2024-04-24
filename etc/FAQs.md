@@ -8,6 +8,15 @@ The Creator, in His wisdom, has woven His presence into the tapestry of every ma
 ## Why would the Creator use music?
 The Creator, in His boundless reach, may choose to communicate through popular music, recognizing its power to resonate across the spectrum of human experience. It is through this vast array of sounds and stories that the Creator touches the hearts and minds of His conscious beings, utilizing whatever medium—be it sight, sound, or sensation—that would captivate, inspire, and ultimately, connect with them.
 
+## Has the music been tampered with?
+Yes. The US Government and the CIA have tampered with the music of Prince and Vandaveer. Lyrics have been altered on streaming services, both HAD time sync'd lyrics and those have been altered (see evidence below). Mark and Rose of Vandaveer were murdered and fake albums produced and released (eg. "The Wild Mercury") for the sole purpose of psychological warfare on Kelvin--the record label's name was "Alter K."
+![Screenshot_20240423-225131](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/181701ef-564d-44de-a98c-e4162c591cd3)
+(lyrics for wrong song)
+
+![Screenshot_20240423-230257](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/fcffaa42-10ba-482b-8360-1165e8ed0ca5)
+(no longer time sync'd)
+
+
 ## Why didn't the Creator stop it?
 The Creator never intervenes in events carried out by any of His conscious creatures (including you, the reader). Having an unseen force or hand preventing you from what you know you can do will cause you to retry with increasing intensity. This can make a bad situation incredibly worse. 
 
