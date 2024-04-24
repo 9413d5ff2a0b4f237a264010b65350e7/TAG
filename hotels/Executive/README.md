@@ -11,7 +11,7 @@ Even after they both left textPlus, they remained friends.
 Nanea has an impersonator.
 
 ### Others from textPlus
-The following people from textPlus have went missing also.l
+The following people from textPlus have went missing also:
 * Scott Lahman
 * Eric Rehder
 * Austin Murray
