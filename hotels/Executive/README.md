@@ -19,5 +19,7 @@ The following people from textPlus have went missing also.l
 
 ### Saucy
 Nanea was active in a startup called Saucy, the company was started by a textPlus a couple of textPlus employees while Nanea and Kelvin worked there. Kelvin was friends with them and has been unable to contact any of them.
+* Andrew Zeck
 * Suzy Tai
-  
+
+
