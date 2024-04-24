@@ -116,10 +116,10 @@ Read also:
 * [The CIA's Lust & Envy Problem](/media/CIA_lust_envy.md) / RapeSquads
 * [Cream](/etc/jezebel_cream.md)
 ***
-Quick Links:
+# Quick Links
 * [TAG - The AIDS-Cure Genocide](/)
 * [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
      - [40th Pastoral Anniversary](/MCMBCI)
 * [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
-* [Madonna and the Impersonation](/hotels/Celebrity)
-***
+* [Patricia Ann Rogers Crawley](/hotels/Signature) is kryptonite.
+* [Madonna is a TAG victim](/hotels/Celebrity)
