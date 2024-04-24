@@ -1,10 +1,4 @@
-Quick Links:
-* [TAG - The AIDS-Cure Genocide](/)
-* [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
-     - [40th Pastoral Anniversary](/MCMBCI)
-* [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
-* [Madonna and the Impersonation](/hotels/Celebrity)
-***
+
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see *"Suicide Risk for Company Workers"* below.
 
@@ -121,3 +115,11 @@ Read also:
 * [TAG (The AIDS cure Genocide)](/)
 * [The CIA's Lust & Envy Problem](/media/CIA_lust_envy.md) / RapeSquads
 * [Cream](/etc/jezebel_cream.md)
+***
+Quick Links:
+* [TAG - The AIDS-Cure Genocide](/)
+* [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
+     - [40th Pastoral Anniversary](/MCMBCI)
+* [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
+* [Madonna and the Impersonation](/hotels/Celebrity)
+***
