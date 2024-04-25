@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> If you are feeling suicidal or like you want to end your life, see *"Suicide Risk for Company Workers"* below.
+> If you are feeling suicidal or like you want to end your life, see [*"Suicide Risk for Company Workers"*](README.md#suicide-risk-for-company-workers) below.
 
 > [!NOTE]
 > "The company" is just another name they use, it's the Central Intelligence Agency or CIA.
