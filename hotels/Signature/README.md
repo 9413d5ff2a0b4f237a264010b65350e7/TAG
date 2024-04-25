@@ -1,5 +1,7 @@
 # Signature
 ## The PARC
+![1_oVKaD9pvH0TjVG-HsyH9eQ@2x](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/cc49db82-5fda-4cab-8e23-37b46b987b69)
+
 The most valuable hotel in the CIA's portfolio is priceless to the CIA and the US federal government is the one named after Patricia Ann Rogers Crawley Williams. The hotel is based in what was Sandy Hook, Tennessee an unincorporated city in Maury County.
 
 "If the song "Raspberry Beret" by my cousin Prince Rogers Nelson had another couple verses you would have learned what happened after the visit to Old Man Johnson's farm (that was on Johnson Hill Road) by Josie Rogers (from West Sheepneck Road) and Lila Crawley (from [Crawley Hill Road](crawley_hill.md))--the birth of my mother the baby girl for both parents who just had a quick horsebarn hookup," says Kelvin Williams.
