@@ -31,6 +31,9 @@ Gilead Sciences in partnership with the CIA has employed a variety of attacks on
 Now the CIA needs Kelvin silenced, they've been trying to illicit his suicide. They've engaged numerous men from all over the country who advertise or are otherwise known for their endowments. Most of these guys have since been murdered as the CIA and Gilead Sciences try to hide their use of these men in repeated attempts to dick shame Kelvin. Most of the men hired never met Kelvin.
 
 ## Verifying Kelvin
+This is me (in front of two hitmen):
+![IMG_20240331_174823336_HDR](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/46d7db75-bb9d-4073-b96f-b59a1a6a52b7)
+
 You should not trust anyone who claims to be Kelvin, even if they take you into his current apartment at Phoenix House Apartment B-33. 
 
 There are multiple people who resemble Kelvin that are used by the CIA.
