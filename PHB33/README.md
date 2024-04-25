@@ -62,6 +62,15 @@ The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI
 They really need you and are banking on you to kill your fucking self... Don't! 
 See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
 
+# Cloak Warning ⚠️ 
+Using invisibility cloaks is detrimental to your health. You should understand: 
+* You are not invisible, the rules of the visible universe still apply.
+* To walk through solid objects (ie. walls, doors) requires the atoms to become excited. You are enveloping yourself in a microwave oven essentially.
+* Users of cloaks are practically guaranteeing cluster cancers. Ask Annie Jacobsen aka "Chivy."
+* Always disable/turn off your cloak in a safe place. NEVER INSIDE MY APARTMENT, there are too many others using them inside at all times.
+
+
+
 ## Nighttime Visitors 
 The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. 
 
@@ -115,6 +124,15 @@ Read also:
 * [TAG (The AIDS cure Genocide)](/)
 * [The CIA's Lust & Envy Problem](/media/CIA_lust_envy.md) / RapeSquads
 * [Cream](/etc/jezebel_cream.md)
+
+# Assistance 
+They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
+
+If you want to help me with a buck or two, you can for cigarettes (they're $6 or $0.50 each at the company store)
+* Drop the change in the wooden tray on the microwave
+* CashApp - $kelkelatl
+* PayPal - @KelvinB33
+* Venmo - @suitcasewatch
 ***
 # Quick Links
 * [TAG - The AIDS-Cure Genocide](/)
