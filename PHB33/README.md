@@ -30,6 +30,7 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 # About 23
 * Our birthdays are March 23 (Kelvin) and September 23 (TomTom).
 * The Earth's current tilt is 23 degrees.
+* There are 23 pairs of chromosomes in human DNA (see Listen Also).
 * This is our 23rd time on Earth (we are always born here).
 * I believe I've heard every 2&3 combination possible, trying to get Main/Baby to take over.
 
@@ -135,6 +136,9 @@ Listen also:
 
 > **Listen Also**
 > "It's Raining Men" by The Weather Girls -- The rain is never wet, it's one of the things the Creator **has to do.** That is describing TomTom and I. Just #wait.
+
+> **Listen Also**
+> "Truth Hurts" by Lizzo. Why Main great till he gotta be great?! I already took the DNA test its on file at 23andMe. TomTom is a viking at heart. I just wish my appointment wasn't until 10:30 at night (see "It's Raining Men") in the Creator's salon chair!!! We don't play TAG!
 
 Read also:
 * [How The CIA Hinders 911](/methods/911.md)
