@@ -33,6 +33,9 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 * This is our 23rd time on Earth (we are always born here).
 * I believe I've heard every 2&3 combination possible, trying to get Main/Baby to take over.
 
+> [!NOTE]
+> The rumors of TomTom's demise are greatly exaggerated. Jacobsen knows she has two teams for him, one believes he's dead, the other knows he's alive. See Listen Also.
+
 # Risk of Your Death
 > [!WARNING]
 > Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone. (See Accomodations Warning below for the military).
@@ -119,7 +122,19 @@ Listen also:
 > "Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
 
 > **Listen Also**
-> "Pope" by Prince -- The Pope is the Creator's public facing man and aren't scared of anyone neither are we; also "git commit" didn't exist at the time, so he says "save." 
+> "Pope" by Prince -- The Pope is the Creator's public facing man and aren't scared of anyone neither are we; also "git commit" didn't exist at the time, so he says "save."
+
+> **Listen Also**
+> "Woolgathering" by Vandaveer -- That's TomTom speaking about coming to Riverdale after the massacre at Mount Calvary in May 2023.
+
+> **Listen Also**
+> "Before the Great War" by Vandaveer -- That's describing the players in the war: TomTom (At 2? They're weird in WV) and Annie. It also describes TomTom on a previous deployment ("Strike Two" for the federal government and CIA).
+
+> **Listen Also**
+> "Concerning Past and Future Conquests" by Vandaveer -- That's me (without Main/Baby), TomTom (on our airplane, we have kids?!), then Main/Baby.  TomTom goes on a vacation without me (I prefer to sweat on a dancefloor for vacation) and tells you we are in the age of Aquarius now.
+
+> **Listen Also**
+> "It's Raining Men" by The Weather Girls -- The rain is never wet, it's one of the things the Creator **has to do.** That is describing TomTom and I. Just #wait.
 
 Read also:
 * [How The CIA Hinders 911](/methods/911.md)
