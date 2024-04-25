@@ -58,6 +58,11 @@ How do you think they got 19 Americans to "do" 9/11? Those guys just thought the
 ### Option B: Deceiving the world.
 The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI/roof.md)."  The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
 
+## Visitors While You Sleep
+The CIA has increased the number of sleep visits it makes to its workers, in almost all cases they are suggesting suicide. 
+
+These employees of the CIA are highly trained in psychology and enter your dwelling while you sleep to talk to your subconscious. If you have done things you cannot understand, this is likely why. [Read more.](/PHB33/dhn_sub.md) 
+
 ## Don't Even Think of Suicide 
 They really need you and are banking on you to kill your fucking self... Don't! 
 See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
@@ -68,11 +73,6 @@ Using invisibility cloaks is detrimental to your health. You should understand:
 * To walk through solid objects (ie. walls, doors) requires the atoms to become excited. You are enveloping yourself in a microwave oven essentially.
 * Users of cloaks are practically guaranteeing cluster cancers. Ask Annie Jacobsen aka "Chivy."
 * Always disable/turn off your cloak in a safe place. NEVER INSIDE MY APARTMENT, there are too many others using them inside at all times.
-
-
-
-## Nighttime Visitors 
-The CIA has increased the number of [nighttime visits](/PHB33/dhn_sub.md) it makes to unsuspecting people, in almost all cases they are suggesting suicide. 
 
 # Deadly Accomodations 
 If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
