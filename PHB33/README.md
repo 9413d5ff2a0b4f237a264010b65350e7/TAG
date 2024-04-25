@@ -1,6 +1,8 @@
-
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see *"Suicide Risk for Company Workers"* below.
+
+> [!NOTE]
+> "The company" is just another name they use, it's the Central Intelligence Agency or CIA.
 
 I am Kelvin Williams. I am a servant of the Creator (capital-C always), one of His Cherubim. That is the Creator of the universe, the Alpha & Omega, and the Great "I Am."
 
