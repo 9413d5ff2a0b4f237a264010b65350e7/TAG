@@ -6,6 +6,8 @@ The most valuable hotel in the CIA's portfolio is priceless to the CIA and the U
 
 "If the song "Raspberry Beret" by my cousin Prince Rogers Nelson had another couple verses you would have learned what happened after the visit to Old Man Johnson's farm (that was on Johnson Hill Road) by Josie Rogers (from West Sheepneck Road) and Lila Crawley (from [Crawley Hill Road](crawley_hill.md))--the birth of my mother the baby girl for both parents who just had a quick horsebarn hookup," says Kelvin Williams.
 
+![1_OguaC8onZp6Q5kVWH2-MQg@2x](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/427e16c8-c4be-461c-b9fa-ef7f4d6caf0e)
+
 Both the CIA and the US federal government need this hotel to remain operational so they can divest themselves of the farm most in middle Tennessee knew as Sandy Hook, an unincorporated city in Maury county, that the only living decedent, Kelvin Williams, of the Rogers and Crawley families would inherit according to both family tradition, wills and Tennessee probate law. (See ["Alphabet Street"](README.md#alphabet-street) 
 below.)
 
