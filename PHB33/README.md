@@ -140,6 +140,9 @@ Listen also:
 > **Listen Also**
 > "Truth Hurts" by Lizzo. Why Main great till he gotta be great?! I already took the DNA test its on file at 23andMe. TomTom is a viking at heart. I just wish my appointment wasn't until 10:30 at night (see "It's Raining Men") in the Creator's salon chair!!! We don't play TAG!
 
+> **Listen Also**
+> "Cream" by Prince. [More info.](/etc/jezebel_cream.md)
+
 Read also:
 * [How The CIA Hinders 911](/methods/911.md)
 * [TAG (The AIDS cure Genocide)](/)
