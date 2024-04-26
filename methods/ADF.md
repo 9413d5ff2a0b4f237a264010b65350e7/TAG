@@ -4,3 +4,7 @@ Funeral arrangements are provided to persons contacting a commandeered church se
 
 ADFs are scheduled based on “worker” availability. 
 
+***
+
+Suspected ADF Activity:
+based on activity around me on April 26th I believe that there was a ADF planned at Lexington Bethel Baptist Church in Lexington Kentucky I am unable to contact authorities to app for me.
