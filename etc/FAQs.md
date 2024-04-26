@@ -28,3 +28,18 @@ Beheading is something that the Creator and His cherubim beg you to cease doing 
 The Creator makes us experience things so we can share that experience with others, so both cherubim have been through it, me almost daily nowadays. It is something so horrible that I wouldn't wish it on the people who have done it to my family and friends.
 
 Merely witnessing the act of beheading can cause extreme psychological trauma, putting a witness at a high risk of suicide. The company knows this. The company is quietly hoping you'll commit suicide if you were at any of the churches. Don't do it! 
+
+## Does the Creator approve of alcohol?
+NO!
+
+Alcohol is a solvent, you can put alcohol on a rag and clean practically any surface. Alcohol is carried around by the blood and touches every cell in the body. The cleaning power of alcohol is detrimental to cells causing them damage. This is why we lose muscle control, the cells are being destroyed.
+
+The Creator knows humans like to alter their states, and does not disapprove of some recreational drugs as long as they are not full of "nope." The Creator has some new alcohol and nope-free drugs coming after these first three (life saving) gifts are widely available.
+
+> [!NOTE]
+> The Creator's nope-free drugs are AMAZING. You use them the same way, just maybe less (because of quality).
+
+## Why is alcohol legal?
+It's taxable, like pharmaceuticals. Most pharmaceuticals are toxic to the body--and they know it.
+
+(Did we mention, the Creator dislikes governments?)
