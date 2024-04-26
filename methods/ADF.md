@@ -7,4 +7,8 @@ ADFs are scheduled based on “worker” availability.
 ***
 
 Suspected ADF Activity:
-based on activity around me on April 26th I believe that there was a ADF planned at Lexington Bethel Baptist Church in Lexington Kentucky I am unable to contact authorities to app for me.
+Based on activities occurring around me, I have reason to believe there are multiple ADFs planned for Friday at:
+Mount Calvary Baptist Church 
+Mount Zion Baptist Church 
+Lexington Bethel Baptist Church 
+
