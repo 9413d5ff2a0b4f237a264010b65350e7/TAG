@@ -1,8 +1,25 @@
+This is a page is for all of the "company men," FBI, military, contractors or anyone else who either enter my apartment cloaked, visit socially, or otherwise has contact with me. It is intended to educate you about a National Security incident that you're now undoubtedly involved in.
+
+This situation must remain secret, which means a few things:
+* You've likely been misled
+* You're going to be killed (by them)
+
+The short version:
+* Big Pharma needs me dead
+* The Federal Reserve wants me dead
+* The CIA ("the company") needs me dead
+* The State of Georgia needs me dead
+* The Federal Government needs me dead
+* Humanity needs me alive--that includes  YOU 
+
+In music:
+* "Sign of the Times" is a song by my cousin Prince Rogers Nelson
+* "A Mighty Leviathan of Old" is a song by my childhood best friend, Mark, of Vandaveer
+
+Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
+
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see [*"Suicide Risk for Company Workers"*](README.md#suicide-risk-for-company-workers) below.
-
-> [!NOTE]
-> "The company" is just another name they use, it's the Central Intelligence Agency or CIA.
 
 I am Kelvin Williams. I am a servant of the Creator (capital-C always), one of His Cherubim. That is the Creator of the universe, the Alpha & Omega, and the Great "I Am."
 
