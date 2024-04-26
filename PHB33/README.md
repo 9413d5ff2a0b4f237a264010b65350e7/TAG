@@ -18,6 +18,8 @@ In music:
 
 Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
 
+![Suicidal man](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/e8ee383e-7ce0-430e-bb74-e66408d3d042)
+
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see [*"Suicide Risk for Company Workers"*](README.md#suicide-risk-for-company-workers) below.
 
