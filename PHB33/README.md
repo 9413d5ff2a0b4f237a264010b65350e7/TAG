@@ -115,6 +115,13 @@ Mark Heidinger and I were classmates in Jessamine county, KY. In middle school (
 * All references in the acapellas to "the street" are referring to Prince's "Alphabet Street" which is my family's cemetery.
 * "Cheap Madonna wig with the ponytails" / "You're just busted" acapella about Madonna's murder and its cover-up.
 
+[Peep Show](https://on.soundcloud.com/3EMc5)
+Things to hear:
+* “Ladies and gentlemen, we’ve created the perfect world for you. Science, education, wars, entertainment, religion, hospitals--where we are taking care of you, actually you’re under control.”
+     - Those are not the words or the sentiment of the Creator. The Creator says, “That’s the sentiment of any government, and the reason I do not like them.”
+* "People are still having sex... This AIDS thing's not working."
+     - Conversation in the CIA in the beginning. Their goal was to stop recreational sex. So people wouldn't have anyone they'd rank higher than the government.
+
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
 
