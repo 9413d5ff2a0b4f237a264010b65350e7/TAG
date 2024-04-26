@@ -25,13 +25,12 @@ If you have experienced sleep paralysis where you wanted to get up but couldn't 
 
 Quite simply: Your subconscious should always be thinking exactly what you are. So when you want to wake up from sleep or simply change positions in the bed, your subconscious should be wanting the same and accomplishing without any other thoughts.
 
-If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"nighttime visitors"* from entering your room at night.
+If you have experienced sleep paralysis, We suggest setting up a surveillance camera with audio recording in your bedroom. This will deter the CIA's *"sleep visitors"* from entering your room at night.
 
 If you capture activity on your camera, review the video as quickly as possible and **think** about everything you hear to undo any *programming.*
 
 ## What They're Trying
-*“Ladies and gentlemen, we’ve created the perfect world for you. Science, education, wars, entertainment, religion, hospitals--where we are taking care of you, actually you’re under control.”* from Peep Show
-
+*“Ladies and gentlemen, we’ve created the perfect world for you. Science, education, wars, entertainment, religion, hospitals--where we are taking care of you, actually you’re under control.”* from "Peep Show" by Serving Ovahness.
 * Those are not the words or the sentiment of the Creator. The Creator says, “That’s the sentiment of any government, and the reason I do not like them.”
 * The ruling elites have always sought to have no one above them and to make all people their subjects. 
      - The church of England separated from the Catholic Church because Catholics places the Pope above the monarch. 
