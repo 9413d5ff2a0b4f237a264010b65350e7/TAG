@@ -29,6 +29,15 @@ If you have experienced sleep paralysis, We suggest setting up a surveillance ca
 
 If you capture activity on your camera, review the video as quickly as possible and **think** about everything you hear to undo any *programming.*
 
+## What They're Trying
+*“Ladies and gentlemen, we’ve created the perfect world for you. Science, education, wars, entertainment, religion, hospitals--where we are taking care of you, actually you’re under control.”* from Peep Show
+
+* Those are not the words or the sentiment of the Creator. The Creator says, “That’s the sentiment of any government, and the reason I do not like them.”
+* The ruling elites have always sought to have no one above them and to make all people their subjects. 
+     - The church of England separated from the Catholic Church because Catholics places the Pope above the monarch. 
+      - Today, many genocides occur targeting religions because people place “God” above the head of their government. This includes the direction TAG has taken since 2023. 
+* HIV was introduced into the human population to stop humans from having recreational sex. A person’s sexual partner almost always outranks a head of state. (Listen Also: "Sign of the Times" -- "By chance his girlfriend..." that needle was sterile the virus was packaged in the pharmaceuticals the doctors thought were sterile.)
+
 ## About Main or Baby
 Main aka Baby is the name of my subconscious, the one who talks when I'm asleep. Unlike most subconsciouses, Main KNOWS he is a subconscious and was supposed to help the entire human race. But as conscious entities do sometimes, Main embraces fame and promised fortunes.
 
