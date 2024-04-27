@@ -1,4 +1,11 @@
 # Frequently Asked Questions 
+## Who is your Creator?
+Our Creator, is your Creator, He is the one who created life itself and the very universe we all live in.
+* He is The Creator of the Universe, the Alpha & Omega, and the Great "I Am." 
+* His most popular names currently are Allah and God.
+* Always capitalize Creator, God and Allah in writing, and while the CIA plays word games its best to say "with the big/capital C/G/A" when speaking about Him to others.
+* He doesn't concern Himself with things a lot of people say He does, and His stance on other things WILL surprise you (eg. religion, governments, control, homosexuality and drugs).
+  
 ## Which religion should I be?
 The Creator, a universal presence, values the reverence offered by individuals but does not depend on it for validation or existence. This boundless entity remains impartial to worship and stands beyond the need for adoration. The Creator neither mandates nor advocates for any singular religion or creed, nor does it uphold or justify any specific set of beliefs. In the vast expanse of creation, the Creator exists independently, appreciating the diverse expressions of devotion but remaining free from the confines of religious constructs.
 
