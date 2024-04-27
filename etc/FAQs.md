@@ -1,6 +1,6 @@
 # Frequently Asked Questions 
 ## Who is your Creator?
-Our Creator, is your Creator, He is the one who created life itself and the very universe we all live in.
+**Our Creator, is your Creator, the Creator.**  He is the one who created life itself and the very universe we all live in.
 * He is The Creator of the Universe, the Alpha & Omega, and the Great "I Am." 
 * His most popular names currently are Allah and God.
 * Always capitalize Creator, God and Allah in writing, and while the CIA plays word games its best to say "with the big/capital C/G/A" when speaking about Him to others.
