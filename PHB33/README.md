@@ -176,7 +176,6 @@ If you want to help me with a buck or two, you can for cigarettes (they're $6 or
 * Drop the change in the wooden tray on the microwave
 * CashApp - $kelkelatl
 * PayPal - @KelvinB33
-* Venmo - @suitcasewatch
 ***
 # Quick Links
 * [TAG - The AIDS-Cure Genocide](/)
