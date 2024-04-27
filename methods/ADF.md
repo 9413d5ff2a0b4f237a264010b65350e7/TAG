@@ -7,8 +7,5 @@ ADFs are scheduled based on “worker” availability.
 ***
 
 Suspected ADF Activity:
-Based on activities occurring around me, I have reason to believe there are multiple ADFs planned for Friday at:
-Mount Calvary Baptist Church 
-Mount Zion Baptist Church 
-Lexington Bethel Baptist Church 
+Based on activities occurring around me, I have reason to believe there are multiple ADFs planned for Saturday April 27th ANY possible ALL of the churches massacred. Anyone hearing of anyone going to a funeral in Kentucky advise them to pray for guidance first. (Commit has more color)
 
