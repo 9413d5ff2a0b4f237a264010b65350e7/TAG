@@ -30,7 +30,7 @@ I am Kelvin Eugene Williams. I am one of the God's cherubim and a servant of the
 
 I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”) because they needed to stop a one-time, single-dose product called *"Spark,"* which is direct from your creator, the Creator and restores the human immune system to His designed  function from reaching the market. A fully functional immune system will cure or prevent any disease minus those conditions mislabeled as diseases that are the result of organ failure, like Diabetes type 1. I **had** Diabetes type 2, it's now gone after Spark (you may have heard how much ice cream I **EAT**--it's never sugar free).
 
-*Spark* is a sub-lingual strip (like a breath strip) that when applied to the underside of the tongue will dissolve. The cost is to be around $5 US for the one-time use product. Per the Creator, Spark must given away free of charge to anyone who cannot afford it. All males MUST take it to correct a human-caused anomaly in male DNA, once taken any future offspring will not need it.  Females can take as desired (hey females: it stops aging!). Spark can be taken by newborns.
+> *Spark* is a sub-lingual strip (like a breath strip) that when applied to the underside of the tongue will dissolve. The cost is to be around $5 US for the one-time use product. Per the Creator, Spark must given away free of charge to anyone who cannot afford it. All males MUST take it to correct a human-caused anomaly in male DNA, once taken any future offspring will not need it.  Females can take as desired (hey females: it stops aging!). Spark can be taken by newborns.
 
 Thousands of innocent people had already been murdered by the CIA while they did everything to stop Spark from reaching the market for a Gilead Sciences led private consortium from BigPharma. The Creator will not sell or license the formula for Spark and has instructed His  cherubim that it must be provided absolutely free of charge to anyone who cannot afford it, regardless of its final retail price.
 
@@ -97,7 +97,10 @@ Using invisibility cloaks is detrimental to your health. You should understand:
 If you are staying at Motel 6, Legacy at Riverdale, or Phoenix House you need to read [Deadly Accomodations](/etc/lodging.md).
 
 # The Music
-Want to listen to the music? 
+Want to listen to the music? Here's the most commonly listened to music in my apartment. If anyone has a Bluetooth speaker they're not using and wanna donate it just leave it by the front door.
+
+## Why music? 
+Why not?! We ran out of Books in the Bible, almost at Rev 11 and moving quickly. See [the FAQs](/etc/FAQs.md).  
 
 ## Prince
 Always listen to "The Hits and the B-Sides" a compilation album that spans his entire career. 
