@@ -23,15 +23,12 @@ Your Creator, the Creator, is my Boss and I'm fine after over six years of near 
 > [!IMPORTANT]
 > If you are feeling suicidal or like you want to end your life, see [*"Suicide Risk for Company Workers"*](README.md#suicide-risk-for-company-workers) below.
 
-I am Kelvin Williams. I am a servant of the Creator (capital-C always), one of His Cherubim. That is the Creator of the universe, the Alpha & Omega, and the Great "I Am."
-
-> [!IMPORTANT]
-> The Creator has had numerous names given to Him since the dawn of man, the most popular ones today are Allah and God. I work for Him directly--that's why I'm impossible to kill. 
+I am Kelvin Eugene Williams. I am one of the God's cherubim and a servant of the Creator (capital-Gs and Cs always)--the Creator of the universe, the Alpha & Omega, and the Great "I Am."
 
 > [!TIP]
 > The Creator is the only one which can hear prayer when it's made silently. Anytime you read something on here (or the linked pages) say a silent prayer asking for guidance. Pray the way you were first taught to as a child, just silently (you never know who's listening).
 
-I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”) because they needed to stop a one-time, single-dose product called *"Spark,"* which is direct from your creator, the Creator and restores the human immune system to His designed  function from reaching the market. A fully functional immune system will cure or prevent any disease minus those conditions mislabeled as diseases that are the result of organ failure, like Diabetes type 1. I **had** Diabetes type 2, it's gone after Spark (you may have heard how much ice cream I **EAT**--never sugar free).
+I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”) because they needed to stop a one-time, single-dose product called *"Spark,"* which is direct from your creator, the Creator and restores the human immune system to His designed  function from reaching the market. A fully functional immune system will cure or prevent any disease minus those conditions mislabeled as diseases that are the result of organ failure, like Diabetes type 1. I **had** Diabetes type 2, it's now gone after Spark (you may have heard how much ice cream I **EAT**--it's never sugar free).
 
 Thousands of innocent people had already been murdered by the CIA while they did everything to stop Spark from reaching the market for a Gilead Sciences led private consortium from BigPharma. The Creator will not sell or license the formula for Spark and has instructed His  cherubim that it must be provided absolutely free of charge to anyone who cannot afford it, regardless of its final retail price.
 
