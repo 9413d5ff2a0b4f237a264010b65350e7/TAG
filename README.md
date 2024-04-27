@@ -59,3 +59,6 @@ Everyone needs to get ready and [Dig Down Deep](https://youtu.be/0kLylyZciMg?si=
 
 > [!CAUTION]
 > The government and CIA are actively trying to silence the Creator's words, so ask an older person about Prince's lyrics and for Vandaveer make sure you memorize Mark & Rose's faces and voices (in the Dig Down Deep video above) it will help you detect fake or altered Vandaveer, like [But enough on that for now](https://music.youtube.com/watch?v=heLmOj9h6C8&si=h7evOx-la9ePm3WN) (that's CIA, back dating is something they do often).
+
+# Slack 
+[Join our Slack.](https://join.slack.com/t/thecherubimonslack/shared_invite/zt-2h5wrphds-0icLMWVSCdt9vskOk3dLRw)
