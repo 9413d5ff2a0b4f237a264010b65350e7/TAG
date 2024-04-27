@@ -17,7 +17,7 @@ In music:
 * "A Mighty Leviathan of Old" is a song by my childhood best friend, Mark, of Vandaveer
 
 Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
-
+***
 ![Suicidal man](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/e8ee383e-7ce0-430e-bb74-e66408d3d042)
 
 > [!IMPORTANT]
@@ -46,12 +46,13 @@ This entire tragedy and genocide were foretold in the Book of Revelation and in 
 > [!IMPORTANT]
 > The world is not ending today, it's already tomorrow in Australia. The same will be true tomorrow. No planet that ever had life start on it has ever went fully extinct or their world ended.
 
-# About 23
+# About "23"
 * Our birthdays are March 23 (Kelvin) and September 23 (TomTom).
 * The Earth's current tilt is 23 degrees.
 * There are 23 pairs of chromosomes in human DNA (see Listen Also).
-* This is our 23rd time on Earth (we are always born here).
-* I believe I've heard every 2&3 combination possible, trying to get Main/Baby to take over.
+* This is our 23rd mission on Earth (we are always born here).
+
+I believe I've heard every 2&3 combination possible, trying to get Main/Baby to take over.
 
 > [!NOTE]
 > The rumors of TomTom's demise are greatly exaggerated. Jacobsen knows she has two teams for him, one believes he's dead, the other knows he's alive. See Listen Also.
@@ -75,13 +76,7 @@ Anyone who went to any of the churches in Kentucky for "company work" should be 
 
 The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
 
-Many of you were lied to, some coerced, some threatened, some drugged... This is how the CIA or company operates. 
-
-### Option A: Deceiving their employees.
-How do you think they got 19 Americans to "do" 9/11? Those guys just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
-
-### Option B: Deceiving the world.
-The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI/roof.md)."  The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
+Many of you were lied to, some coerced, some threatened, some drugged... This is how the CIA or company operates. The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI/roof.md)."  The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
 
 ## Visitors While You Sleep
 The CIA has increased the number of sleep visits it makes to its workers, in almost all cases they are suggesting suicide. 
