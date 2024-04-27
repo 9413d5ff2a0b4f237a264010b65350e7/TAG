@@ -21,13 +21,13 @@ Merely witnessing the act of beheading can cause extreme psychological trauma, p
 ## Which religion should I be?
 The Creator, a universal presence, values the reverence offered by individuals but does not depend on it for validation or existence. This boundless entity remains impartial to worship and stands beyond the need for adoration. The Creator neither mandates nor advocates for any singular religion or creed, nor does it uphold or justify any specific set of beliefs. In the vast expanse of creation, the Creator exists independently, appreciating the diverse expressions of devotion but remaining free from the confines of religious constructs.
 
-## Has the Creator ever involved Himself in a religion?
+### Has the Creator ever involved Himself in a religion?
 The Creator, in His wisdom, has woven His presence into the tapestry of every major religion, ensuring that through diverse paths, the sanctity and protection of life remains a paramount priority. This divine involvement serves as a testament to the universal value placed on life as the foremost treasure.
 
 ## Why would the Creator use music?
 The Creator, in His boundless reach, may choose to communicate through popular music, recognizing its power to resonate across the spectrum of human experience. It is through this vast array of sounds and stories that the Creator touches the hearts and minds of His conscious beings, utilizing whatever medium—be it sight, sound, or sensation—that would captivate, inspire, and ultimately, connect with them.
 
-## Has the music been tampered with?
+### Has the music been tampered with?
 Yes. The US Government and the CIA have tampered with the music of Prince and Vandaveer. Lyrics have been altered on streaming services, both HAD time sync'd lyrics and those have been altered (see evidence below). Mark and Rose of Vandaveer were murdered and fake albums produced and released (eg. "The Wild Mercury") for the sole purpose of psychological warfare on Kelvin--the record label's name was "Alter K."
 ![Screenshot_20240423-225131](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/181701ef-564d-44de-a98c-e4162c591cd3)
 (lyrics for wrong song)
@@ -45,7 +45,7 @@ The Creator knows humans like to alter their states, and does not disapprove of 
 > [!NOTE]
 > The Creator's nope-free drugs are AMAZING. You use them the same way, just maybe less (because of quality).
 
-## Why is alcohol legal?
+### Why is alcohol legal?
 It's taxable, like pharmaceuticals. Most pharmaceuticals are toxic to the body--and they know it.
 
 (Did we mention, the Creator dislikes governments?)
