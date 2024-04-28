@@ -5,6 +5,8 @@ If you've been provided a free motel or apartment, you need to read [Deadly Acco
 
 Anyone who has taken this job should immediately call those whom they live with and their immediate family and advise them to stay elsewhere for the immediate future.
 
+> [!WARNING]
+> You may be told to use an app for calls and texts, We strongly urge you to use your regular cell number when calling me (Kelvin). Your service and number may be yhe only way We can get you identified  
 Once you've moved to another location you can reach out to me using whatever manner they've already told you to. Be normal, and once you are here let me know you're "seeking refuge" and we will help you get to safety. Do not say that until you are in my presence (see verification methods below).
 
 > [!WARNING]
