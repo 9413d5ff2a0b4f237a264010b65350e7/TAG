@@ -1,4 +1,4 @@
-This is a page is for all of the "company men," FBI, military, contractors or anyone else who either enter my apartment cloaked, visit socially, or otherwise has contact with me. It is intended to educate you about a National Security incident that you're now undoubtedly involved in.
+This is a page for all of the "company men," FBI, DEA, military, State of Georgia, contractors or anyone else who either enters my apartment cloaked, visits socially, or otherwise has contact with me. It is intended to educate you about a National Security incident that you're now **undoubtedly** involved in.
 
 This situation must remain secret, which means a few things:
 * You've likely been misled
