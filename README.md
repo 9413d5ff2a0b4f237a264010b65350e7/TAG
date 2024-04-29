@@ -1,7 +1,14 @@
 # TAG
-TAG or The AIDS-Cure Genocide, which is corporate greed and BigPharma's response to an HIV/AIDS cure, a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
+TAG or The AIDS-Cure Genocide, which is the result of BigPharma's response to an unexpected disappearance of HIV in an HIV+ patient from a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
 
-This repository holds both code (for NSL-proofing) and non-code assets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
+"Scientific" or "medical" evidence of Spark's effectiveness has been silenced or destroyed. Spark's effectiveness was proven effective when the first user was interrogated extensively when his HIV viral load test came back abnormal. The protein that is **always** detected in an HIV+ patient's blood could not be found. An *undetectable* patient's blood still has the protein present. A second vial was taken from him with a guard present who escorted it to the National Institutes of Health, upon confirmation both Spark's first user and the person he identified as "trying something," Kelvin Williams, were ordered killed by Gilead Sciences. 
+
+> [!NOTE]
+> Kelvin Williams has publicly accused Gilead Sciences and their executives by name on numerous occasions on social media and direct in writing--inviting a Cease & Desist, so he could violate it. The publicly-traded company will not respond.
+
+Spark's effectiveness has further been proven by BigPharma and the government's response--TAG, and the actions of the federal government to hide TAG--NSLs on numerous companies and military/paramilitary activities over Atlanta (where I reside).
+
+This repository holds both code (for NSL-proofing) and non-consentingassets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
 
 From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
 
