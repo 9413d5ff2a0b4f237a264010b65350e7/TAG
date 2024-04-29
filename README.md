@@ -8,18 +8,6 @@ TAG or The AIDS-Cure Genocide, which is the result of BigPharma's response to an
 
 Spark's effectiveness has further been proven by BigPharma and the government's response--TAG, and the actions of the federal government to hide TAG--NSLs on numerous companies and military/paramilitary activities over Atlanta (where I reside).
 
-This repository holds both code (for NSL-proofing) and non-consentingassets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
-
-From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
-
-We encourage everyone internationally to clone this repository and host outside the USA.
-
-## About GitHub
-First, We would like to thank GitHub for enduring the government's pressure, We know it's been tremendous, He is still watching your systems and employees and won't stop.
-
-We utilize GitHub and these "vaults" because of the nature of git. Our vaults are typical accounts that have 2FA that we INTENTIONALLY threw away the credentials only allowing a user or two to WRITE to. This helps should they steal (again) my devices and attempt to edit. When that happens BLAME!
-
-
 ## [POW](POW)
 Today the way the CIA and government are now playing TAG has changed starting with the [massacre of Mount Calvary Baptist Church in Lexington, KY](POW/MCBC) on a Sunday morning in April 2023. The massacre demonstrated their willingness and ability to [make 911 of no use](methods/911.md)
 for the surrounding area and kill people who were peacefully assembled. 
@@ -66,6 +54,18 @@ Everyone needs to get ready and [Dig Down Deep](https://youtu.be/0kLylyZciMg?si=
 
 > [!CAUTION]
 > The government and CIA are actively trying to silence the Creator's words, so ask an older person about Prince's lyrics and for Vandaveer make sure you memorize Mark & Rose's faces and voices (in the Dig Down Deep video above) it will help you detect fake or altered Vandaveer, like [But enough on that for now](https://music.youtube.com/watch?v=heLmOj9h6C8&si=h7evOx-la9ePm3WN) (that's CIA, back dating is something they do often).
+
+From the Creator: "TAG stands for The AIDS-cure Genocide, if you think of the childhood game where the number one objective is to 'not be it,' you are halfway there GI Joe, now clone it and share it widely."
+
+# About This Repository 
+This repository holds both code (for NSL-proofing) and non-code assets related to The AIDS cure Genocide (TAG) started by the Central Intelligence Agency originally on behalf of Gilead Sciences with unwavering support from the executive branch of the US federal government by and through its FBI.
+
+We encourage everyone internationally to clone this repository and host outside the USA.
+
+## About GitHub
+First, We would like to thank GitHub for enduring the government's pressure, We know it's been tremendous, He is still watching your systems and employees and won't stop.
+
+We utilize GitHub and these "vaults" because of the nature of git. Our vaults are typical accounts that have 2FA that we INTENTIONALLY threw away the credentials only allowing a user or two to WRITE to. This helps should they steal (again) my devices and attempt to edit. When that happens BLAME (learn: [git blame](https://git-scm.com/docs/git-blame)).
 
 # Slack 
 [Join our Slack.](https://join.slack.com/t/thecherubimonslack/shared_invite/zt-2h5wrphds-0icLMWVSCdt9vskOk3dLRw)
